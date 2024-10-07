@@ -1,3 +1,9 @@
+# Paraíso, canto 9
+
+_Depois de Carlos Martelo, fala a Dante Cunizza de Romano, irmã do tirano Ezzelino. Prediz-lhe iminentes desventuras na Marca de Treviso e em Pádua, e uma negra traição do bispo de Feltre. Folco de Marselha manifesta-se a Dante e lhe indica a alma resplendente de Raab, que favoreceu os hebreus na conquista da Terra Santa. Invectiva contra Florença e contra a Cúria Romana._
+
+---
+
 A claridade da luz celestial preenchia o espaço ao redor de Dante, onde a beleza de Beatriz, constante e serena, continuava a guiá-lo pelos segredos do Paraíso. As revelações de Clemenza, com seu toque de melancolia, ainda ecoavam em sua mente. Ela havia falado sobre Carlos e a triste herança que recairia sobre seus descendentes, prevendo traições e dores futuras. Mas, como ela havia sussurrado com sabedoria, "silêncio e deixe os anos correrem", indicando que o tempo, inevitável e justo, traria consigo a justiça necessária. Dante, movido pelo peso dessas palavras, não conseguia evitar o sentimento de que um lamento amargo pairava sobre a humanidade.
 
 À medida que o santo fulgor diante dele voltava seu olhar para o Sol, Dante refletia sobre as almas enganosas que, ao invés de buscar a verdadeira virtude, desviavam seus corações para a vaidade. O calor da luz celestial iluminava essa verdade imutável: o bem maior, constante e eterno, estava ao alcance de todos, mas muitos ainda se perdiam nas sombras de seus próprios erros. Ele suspirou, enquanto o firmamento se abria novamente, revelando outro espírito resplandecente que se aproximava, transmitindo através de seu brilho uma intenção clara de agradar ao poeta. A luz que irradiava de Beatriz parecia confirmar seus próprios desejos, incitando-o a falar.

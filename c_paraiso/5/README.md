@@ -1,3 +1,11 @@
+# Paraíso, Canto 5
+
+_Continuando o discurso do canto anterior, Beatriz explica a Dante que o voto é um pacto entre o homem e Deus. A matéria do voto pode ser mudada, mas deve ser substituída por oferendas de maior mérito. Beatriz lamenta a leviandade dos cristãos._
+
+_Beatriz e Dante voam, então, para a esfera de Mercúrio, onde estão as almas dos homens que viveram uma vida digna e adquiriram fama no mundo. Um espírito fala ao Poeta._
+
+---
+
 O calor do amor que irradiava de Beatriz preenchia todo o espaço ao redor, envolvente e intenso. Ela olhou para Dante com um brilho que superava qualquer expressão terrena de afeto. Seus olhos, cheios de uma luz eterna, penetravam a alma do poeta, tocando o mais profundo do seu ser. Beatriz começou a falar, sua voz firme e clara, como se cada palavra fosse um laço sagrado entre eles. Ela explicou que o amor que ele agora sentia não deveria surpreendê-lo, pois vinha da perfeição da visão divina. Assim como o entendimento de uma verdade eterna acende a chama do amor, o mesmo acontecia com a revelação que ele estava recebendo.
 
 Dante, ciente da intensidade daquele momento, refletia sobre o mistério da devoção e dos votos. Ele ansiava por saber se a alma, ao oferecer um serviço diferente daquele que havia prometido em voto, poderia ainda assim satisfazer a justiça divina. Beatriz percebeu essa dúvida e, sem interromper o fluxo da sua fala, deu continuidade à explicação com a paciência e sabedoria de quem compreende a complexidade da alma humana.

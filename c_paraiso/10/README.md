@@ -1,3 +1,9 @@
+# Paraíso, canto 10
+
+_Depois de admirar a infinita sabedoria de Deus na criação do universo, narra o poeta como, sem se aperceber, achou-se elevado ao Sol, onde estão as almas dos doutos na teologia. Doze espíritos mais reluzentes o circundam e um deles, São Tomás de Aquino, revela o nome dos seus companheiros._
+
+---
+
 Enquanto Dante ascendia pelas esferas do Paraíso, envolto na luz transcendente que só os mais puros poderiam contemplar, ele sentia o calor inefável que emanava do Filho, banhado pelo Amor eterno que une o Pai e o Espírito. O poeta, com os olhos de sua mente elevados à perfeição dos céus, mal podia compreender a magnitude da criação divina. Cada movimento cósmico, orquestrado em uma harmonia inexplicável, revelava um sentido tão profundo que aqueles que o testemunhassem, ainda que por breves instantes, não poderiam deixar de experimentar uma pequena porção da glória do Criador.
 
 "Leva teus olhos, leitor", sussurrou a voz da narrativa como se falasse diretamente a cada alma que ousasse seguir aquele caminho, "e observa comigo o ponto onde os movimentos do universo convergem. Ali, no centro do cosmos, reside a arte suprema, a criação divina que, embora complexa e distante, é o reflexo do amor infinito de Deus." A luz celestial, refletida nos anéis dos planetas, parecia vibrar em um ritmo que seguia as intenções da própria vontade divina. Não havia caminho errante nas órbitas celestes, nem movimento desnecessário; tudo seguia uma ordem destinada a manter o equilíbrio do mundo abaixo. Cada planeta, cada estrela, girava em um círculo perfeito, onde a matemática do cosmos revelava um propósito maior.

@@ -1,3 +1,9 @@
+# Paraíso, canto 27
+
+_São Pedro exprobra os maus pastores da Igreja, e todos os santos manifestam a sua aprovação às palavras do Apóstolo. Novamente, o Poeta contempla a Terra e, depois, com Beatriz, eleva-se ao Primeiro Móvel._
+
+---
+
 A luz suave envolvia tudo ao redor, preenchendo o ar com uma sensação de paz etérea, como se o próprio universo estivesse em perfeita harmonia. Dante sentia o canto celestial fluir ao seu redor como uma melodia envolvente, inebriando seus sentidos. Era uma sinfonia gloriosa dedicada ao Pai, ao Filho e ao Espírito Santo. Seu coração parecia vibrar em sintonia com a música, e seus olhos absorviam o esplendor do paraíso, um sorriso resplandecente de alegria irradiando de cada canto do cosmos. Sentia-se embriagado, não apenas pelo som, mas também pela visão, como se sua alma estivesse imersa em uma alegria além da compreensão humana.
 
 Tudo o que o cercava emanava uma sensação de plenitude e serenidade, como se o próprio conceito de desejo não tivesse mais lugar ali. A riqueza não tinha forma física; a paz, o amor e a plenitude espiritual preenchiam o espaço com uma abundância silenciosa, e Dante se sentia parte desse fluxo celestial, uma partícula insignificante, mas essencial. 

@@ -1,3 +1,9 @@
+# Paraíso, canto 17
+
+_Dante pede a Cacciaguida que lhe declare qual sorte lhe está reservada. Este prediz-lhe o exílio, a perseguição pelos inimigos e o seu refúgio na corte dos Scaligeros. Exorta-o a falar do que viu e ouviu na sua viagem, sem receio de ofender ninguém._
+
+---
+
 Enquanto caminhava pelas vastas esferas do Paraíso, Dante sentia seu coração pulsar com a antecipação de revelações que ainda não compreendia plenamente. Ao seu lado, a presença imponente e serena de Beatriz, cuja sabedoria iluminava não apenas o caminho físico, mas também os cantos mais obscuros de sua alma. A cada passo, o peso de suas dúvidas e incertezas parecia se dissipar diante da luz pura e penetrante das esferas celestiais.
 
 Assim como Clímene buscou confirmação sobre as dolorosas palavras ouvidas a respeito de seu filho Faetonte, Dante agora ansiava por entender o que lhe fora revelado sobre o seu próprio destino. Sua mente vagava entre as palavras enigmáticas proferidas durante sua jornada pelos mundos inferiores, e a visão do que lhe aguardava na Terra lhe deixava inquieto. Sentia a urgência de clareza. Sentindo isso, Beatriz, com sua habitual perspicácia, dirigiu-se a ele com doçura e firmeza: "Expresse o desejo que queima dentro de ti, Dante. Deixe que ele se revele, como uma chama que se alimenta de sua própria força."

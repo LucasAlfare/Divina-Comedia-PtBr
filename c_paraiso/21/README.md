@@ -1,3 +1,9 @@
+# Paraíso, canto 21
+
+_Dante sobe do céu de Júpiter ao de Saturno, onde encontra as almas dos que se dedicaram na vida à celeste contemplação. Ele vê uma escada altíssima pela qual uma multidão de almas resplendentes vai subindo e descendo. São Pedro Damião vai ao encontro do poeta e lhe fala do dogma da predestinação._
+
+---
+
 Os olhos de Dante se mantinham fixos no rosto de Beatriz, sua alma conectada à sua visão, totalmente alheio a qualquer outro pensamento. No entanto, Beatriz não sorria. Ela, com uma voz serena e misteriosa, lhe explicou que, se sorrisse, ele se tornaria como Sêmele, incinerado pela intensidade divina que resplandecia cada vez mais à medida que eles subiam pelas esferas celestes. A beleza que emanava dela era tão deslumbrante que, se não fosse controlada, sua luz destruiria a humanidade frágil de Dante, comparável a uma folha seca arrancada de um galho ao vento.
 
 Eles haviam subido ao sétimo céu, o esplendor radiante que ardia sob o peito do Leão, misturado com a força da luz. Beatriz, como um guia divino, lhe ordenou que fizesse sua mente refletir sobre o que ela mostraria a ele, como um espelho de uma verdade mais profunda. Dante, ansioso, obedeceu com gratidão, sua vontade completamente submissa à dela.

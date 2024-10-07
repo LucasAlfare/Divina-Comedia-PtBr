@@ -1,3 +1,9 @@
+# Paraíso, canto 28
+
+_Dante volta os olhos para Beatriz, que estava atrás dele; depois, mira para a frente e vê um ponto brilhantíssimo, em torno do qual se movem nove círculos de luz, que giram mais rapidamente e são mais brilhantes quanto mais próximos estão dele. Aquele ponto é Deus; os círculos são os coros angélicos._
+
+---
+
 A luz no céu ardia como se o próprio universo estivesse em sintonia com algo muito maior do que qualquer entendimento humano. Dante, envolto pelo esplendor radiante de sua amada Beatriz, se via absorto, incapaz de desviar os olhos das verdades que se desdobravam diante dele. Ela, a personificação de tudo que era sagrado e verdadeiro, abriu para ele uma janela para além do mundo mortal. Dante sentia o peso do conhecimento sobre seus ombros, mas a visão oferecida por Beatriz era irresistível. Ele se via como alguém que, ao olhar para o espelho de uma vela, vê a chama que ilumina sua consciência antes mesmo de compreender o que está vendo.
 
 Ele se virou, buscando nos olhos de Beatriz uma confirmação do que sua mente mal podia processar. Seus olhos haviam tocado algo profundo, algo que transcendia as leis da física, e ele se viu puxado por uma força invisível. À sua frente, um ponto de luz, brilhante e afiado, irradiava uma intensidade que forçava Dante a desviar o olhar, como se seus olhos fossem insuficientes para absorver tamanha pureza. Era como se a lua, ao lado dessa estrela, se tornasse um pequeno grão de poeira no vasto cosmos. Ao redor daquele ponto, círculos de fogo giravam com uma velocidade impossível de se conceber, mais rápidos do que qualquer movimento terreno, e cada círculo parecia estar envolto por outro, cada um mais grandioso que o anterior. A vastidão desses círculos era tão imensa que até mesmo o mensageiro de Juno, com toda sua agilidade celestial, seria incapaz de atravessar suas fronteiras.

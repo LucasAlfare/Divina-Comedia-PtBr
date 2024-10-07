@@ -1,3 +1,9 @@
+# Paraíso, canto 15
+
+_As almas dos combatentes pela fé em Cristo estão dispostas em forma de cruz, vexilo de martírio e de vitória. Do lado direito dessa cruz, move-se um espírito que, com paternal afeto, saúda Dante. É Cacciaguida, seu trisavô. Descreve ele a inocência dos costumes do seu tempo e lembra como morreu combatendo pelo sepulcro de Cristo, na segunda cruzada._
+
+---
+
 Os céus pulsavam com uma harmonia sagrada, enquanto Dante se via envolto na majestade divina do Paraíso. A luz ao seu redor parecia viva, cada faísca uma manifestação do amor puro, movendo-se em perfeita sintonia com a música celestial. De repente, um silêncio absoluto tomou conta do ambiente, tão profundo quanto a própria essência do universo. As cordas daquela lira celestial, manipuladas pela mão divina, cessaram, como se a própria música do paraíso tivesse sido suspensa para aguardar algo maior. Dante percebeu que essa pausa não era por acaso, mas por causa de uma presença poderosa, uma figura envolta em uma luz tão brilhante que parecia impossível de encarar diretamente.
 
 De dentro dessa luminosidade, uma voz ecoou, cheia de afeto e familiaridade. "O sangue meu," disse a figura, e Dante sentiu sua alma vibrar com a intimidade das palavras. Ele sabia, sem sombra de dúvida, que estava diante de um ancestral, alguém com quem sua alma compartilhava uma conexão profunda e inquebrável. A emoção o dominou, e seus olhos se voltaram para Beatriz, que lhe respondeu com um sorriso resplandecente, enchendo-o de uma alegria tão avassaladora que ele quase sentiu estar tocando o próprio coração do paraíso.

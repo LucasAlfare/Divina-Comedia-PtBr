@@ -1,3 +1,9 @@
+# Paraíso, Canto 7
+
+_Desaparecem os bem-aventurados cantando. Beatriz explica como a crucificação de Cristo restituiu ao homem a dignidade perdida, a liberdade que lhe foi conferida por Deus. Os anjos e os homens, por sua natureza, são livres e imortais. O homem, porém, pecando, abusou de sua liberdade e deformou a imagem de Deus que tinha em si. Não podia reparar a falta por si mesmo, pois não podia humilhar-se tanto quanto Adão, que em seu orgulho quis se elevar. A Deus convinha perdoar ou punir. Em sua sabedoria infinita, Deus perdoou e puniu ao mesmo tempo. Puniu a humanidade em Jesus Cristo, e nele a fez novamente livre._
+
+---
+
 Beatrice, envolta pela luz suave e radiante do Paraíso, irradiava um brilho que preenchia o espaço ao redor com uma serenidade quase sobrenatural. Seus olhos brilhavam como estrelas, refletindo uma sabedoria antiga e imortal, enquanto suas palavras ecoavam pelo firmamento com a precisão de uma profecia. O som do cântico celestial a rodeava, uma melodia quase invisível, mas onipresente, que enchia o ar de uma harmonia divina. As vozes dos espíritos, entoando “Osanna, sanctus Deus sabaòth,” eram como o sopro do próprio universo, ressoando nas profundezas da alma de Dante.
 
 Ao redor deles, as substâncias celestiais se moviam em uma dança etérea, rodopiando como fagulhas de fogo que rapidamente desapareciam na imensidão do Paraíso. Cada movimento era como um reflexo das verdades divinas, rápidas demais para os olhos humanos captarem plenamente, mas ainda assim, profundamente reveladoras. Dante, confuso e fascinado, sentia seu espírito ser puxado em direções opostas. Seu coração desejava entender, desejava respostas que acalmassem a inquietação que nascia dentro dele. "Dille, dille!" ele murmurava para si mesmo, ansioso para que Beatrice dissesse as palavras que saciariam sua sede de compreensão.

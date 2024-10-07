@@ -1,3 +1,9 @@
+# Paraíso, Canto 6
+
+_A alma do imperador Justiniano fala ao poeta, narrando-lhe a história do Império, de Enéias a César, a Tibério, a Tito, a Carlos Magno, para mostrar-lhe a santidade da autoridade imperial. Diz-lhe que, no Céu de Mercúrio, estão os espíritos daqueles que se esforçaram para conseguir fama imortal. Discorre-lhe acerca de Romeu, que administrou a corte de Raimundo Berengário, conde de Provença._
+
+---
+
 A figura imponente de Justiniano surgiu diante de Dante, sua presença irradiava autoridade e serenidade, como se o próprio céu o tivesse consagrado. "Fui César", ele declarou com voz firme, "e sou Justiniano." O peso das suas palavras reverberava no ar como o eco de uma era que já não existia mais, mas cuja influência ainda moldava o presente. Ele falou de seu trabalho, de como, guiado pelo amor divino, purificou as leis, retirando delas o que era excessivo ou inútil. Mas antes de assumir essa nobre tarefa, sua alma fora enredada em crenças equivocadas sobre a natureza de Cristo. Era suficiente acreditar que havia apenas uma, até que o abençoado papa Agapito lhe mostrou o caminho para a verdadeira fé. "Agora vejo claramente", Justiniano afirmou, "assim como tu podes distinguir o verdadeiro do falso."
 
 Dante sentia-se pequeno diante de tal relato. O imperador, com um gesto solene, lembrou que, assim que uniu-se à Igreja, dedicou-se inteiramente a Deus e confiou as armas a Belisário, o comandante escolhido pelas próprias mãos divinas. Ele então começou a narrar a história da águia romana, que, após ser conduzida por Constantino para o Oriente, mantivera-se à sombra das montanhas por mais de cem anos, governando o mundo de forma inabalável. "Sob suas penas sagradas, o império governou de mão em mão, até chegar a mim", disse Justiniano, seus olhos brilhando com a memória do poder.

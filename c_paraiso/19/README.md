@@ -1,3 +1,9 @@
+# Paraíso, canto 19
+
+_Dante fala à Águia, externando uma antiga dúvida: se alguém pode salvar-se sem ter conhecimento da lei de Cristo. Respondendo, a Águia aproveita a ocasião para repreender os malvados reis cristãos de seu tempo, que nunca obterão a graça de Deus._
+
+---
+
 O horizonte cintilava com a luz pura e infinita, refletindo a vastidão do céu e da alma de Dante. Ele sentia-se consumido pela beleza celestial, como se estivesse cercado por joias radiantes, cada uma mais brilhante do que a outra, todas refletindo um fogo sagrado que ele jamais vira na Terra. Uma imagem celestial, alada e imponente, pairava diante de seus olhos, exalando uma aura de serenidade e júbilo. As almas que a cercavam, vibrando em harmonia, formavam um coro sublime que tornava o ambiente ainda mais etéreo.
 
 A imagem se movia suavemente, como se seus movimentos fossem guiados pelo próprio ritmo do universo, cada batida de suas asas era uma sinfonia, uma expressão da graça divina. Dante se viu hipnotizado por essa dança celestial, onde cada alma parecia pulsar com a energia do sol, irradiando uma luz tão intensa que seus olhos mal podiam sustentar.

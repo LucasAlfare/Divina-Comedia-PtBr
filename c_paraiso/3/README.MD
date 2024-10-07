@@ -1,3 +1,9 @@
+# Paraíso, canto 3
+
+_Na Lua estão as almas daqueles que não cumpriram plenamente seus votos religiosos. Aparece ao Poeta a alma de Picarda Donati, que resolve uma dúvida sua sobre o contentamento dos espíritos bem-aventurados. Ela narra como foi violentamente retirada do mosteiro e indica ao Poeta a alma da imperatriz Constança._
+
+---
+
 O calor suave do sol, que antes aquecia meu peito com a chama do amor, agora me revelava uma verdade encantadora, iluminando meu caminho, testando e retestando minha percepção enquanto a doce face dessa revelação parecia cada vez mais próxima. Em meio à clareza dessa luz, senti a necessidade de levantar minha cabeça, não apenas para admitir meus erros, mas para expressar, com maior convicção, o entendimento que começava a tomar forma dentro de mim. No entanto, no exato momento em que me preparava para pronunciar minhas palavras, uma visão arrebatadora se ergueu diante de mim. Ela me prendeu de tal maneira que esqueci completamente o que havia começado a confessar.
 
 Diante de mim, como se através de vidros transparentes ou águas claras e tranquilas, de profundidade moderada, vislumbres suaves de rostos começaram a emergir. As faces eram tão delicadas e etéreas que pareciam apenas reflexos fracos, como uma pérola brilhando em uma fronte pálida. E então, algo dentro de mim tropeçou. Confundi aqueles rostos com meros reflexos, acreditando que eram ilusões, talvez criadas por alguma estranha força mística. Inclinei-me para observar melhor, torcendo meus olhos à procura da origem dessas imagens, mas nada vi. Confuso, voltei meu olhar para a figura sempre iluminada de minha guia, Beatriz. Seus olhos santos ardiam com um sorriso que parecia irradiar uma compreensão profunda e serena.

@@ -1,3 +1,9 @@
+# Paraíso, canto 24
+
+_Beatriz roga aos santos que iluminem o intelecto de Dante. Eles manifestaram o seu assentimento. O mais luminoso entre os santos, São Pedro, aproxima-se do poeta e o interroga sobre a fé. O apóstolo aprova inteiramente as respostas de Dante e o abençoa, cingindo-o três vezes com o seu esplendor._
+
+---
+
 Enquanto Beatrice flutuava ao lado de Dante, sua presença irradiava uma luz que não só envolvia a paisagem celestial ao redor, mas também tocava as profundezas do espírito do poeta. Ela estava cercada por almas que, como cometas, giravam em esferas flamejantes, iluminando a vastidão do Paraíso com uma intensidade que transcende qualquer visão mortal. O ar vibrava com uma harmonia celestial, e as almas, em uma dança silenciosa e graciosa, desenhavam padrões como relógios antigos, cujos círculos se moviam com precisão, ora rápidos, ora lentos, dependendo do grau de graça que exibiam.
 
 Dante sentia-se pequeno diante de tal magnificência, mas a presença de Beatrice lhe conferia a força e o propósito necessários para continuar. A voz dela ecoava suave e firme, convocando aquelas almas felizes para voltarem sua atenção ao viajante terrestre. Beatrice os lembrava de que Dante, por graça divina, tinha o privilégio de provar, ainda em vida, das delícias que eles desfrutavam eternamente. Ao som dessas palavras, uma luz intensa emergiu de uma dessas almas, uma chama de brilho inigualável que ofuscava todas as outras ao redor.

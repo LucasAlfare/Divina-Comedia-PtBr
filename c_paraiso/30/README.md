@@ -1,3 +1,9 @@
+# Paraíso, canto 30
+
+_Os nove coros angélicos vão desaparecendo aos poucos. Dante volta os olhos novamente para Beatriz, cuja beleza é agora tão maravilhosa que ele renuncia a descrevê-la. Eles estão no Empíreo, e Dante vê um rio de luz, cujas ribas estão esmaltadas com flores. Do rio saem centelhas que formam flores e depois voltam para as ondas. Por fim, vê uma grande rosa de luz, na qual aparecem anjos e os bem-aventurados. No meio, há um trono preparado para o imperador Henrique VII._
+
+---
+
 O céu reluzia com uma luz quase impossível de olhar, como se o universo estivesse se contraindo sobre si mesmo, ocultando as estrelas uma a uma, até que a escuridão do infinito começava a devorar os últimos pontos de brilho visíveis. Dante, atordoado pelo esplendor que se apagava ao seu redor, sentiu seus olhos sendo compelidos a voltar-se para Beatriz, sua guia e fonte de esperança nesta jornada através dos reinos divinos. Ela estava ali, irradiando uma beleza tão incompreensível, tão além da humanidade, que mesmo as palavras não eram suficientes para capturá-la em sua plenitude. Ele sabia, naquele momento, que não havia verso capaz de fazer justiça àquela visão. Seu ser, sua alma, estavam sobrepujados pela magnitude do que contemplava, e por um instante, ele se sentiu vencido, como se sua própria poesia tivesse chegado ao limite de suas possibilidades.
 
 Com um simples gesto, Beatriz rompeu o silêncio reverente, suas palavras carregadas de uma gravidade que ressoava profundamente dentro dele. "Nós emergimos da escuridão", disse ela, "do maior dos corpos ao céu onde a luz é pura e imaculada. Aqui, Dante, luz e amor se entrelaçam de uma maneira que transcende toda alegria, onde a mais sublime das felicidades faz qualquer outra sensação parecer meramente uma sombra distante." A voz dela fluía com um tom de comando gentil, conduzindo-o como uma correnteza de sabedoria, empurrando-o para frente, enquanto a vastidão celestial se desdobrava diante deles.

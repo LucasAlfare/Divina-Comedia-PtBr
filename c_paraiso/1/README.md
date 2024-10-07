@@ -1,3 +1,9 @@
+# Paraíso, canto 1
+
+_Seguindo as teorias de Ptolomeu, Dante coloca a Terra imóvel no centro do universo e, ao seu redor, em órbitas concêntricas, os céus da Lua, de Mercúrio, de Vênus, do Sol, de Marte, de Júpiter, de Saturno, a oitava esfera, que é a das estrelas fixas, a nona, ou primeiro móvel, e, finalmente, o Empíreo, que é imóvel. Transportado pela força que faz rodar os céus e pela luz sempre crescente de Beatriz, Dante eleva-se de um céu para outro, e em cada um deles lhe aparecem os espíritos bem-aventurados que, quando vivos, possuíram a virtude própria do respectivo planeta._
+
+---
+
 O céu estava pintado de cores etéreas, envolto em um silêncio misterioso e sublime, como se o próprio tempo tivesse pausado para permitir que aquele instante transcendesse sua própria existência. Dante sentia-se como um viajante entre mundos, sua alma elevando-se além dos limites mortais. Ele estava em um lugar onde a luz do Criador penetrava o universo com uma intensidade imensurável, brilhando com mais força em alguns pontos e se suavizando em outros. Aquele era o céu onde a glória de Deus se manifestava com a maior clareza, um reino tão divino que suas maravilhas não podiam ser descritas por palavras humanas. Apenas aqueles que já haviam experimentado a proximidade de tal santidade poderiam entender o que ele via e sentia.
 
 Ele estava acompanhado por Beatriz, que, com a serenidade de quem conhece os segredos do divino, olhava fixamente para o sol. Dante seguiu seu olhar, seus olhos fixos no astro, e por um breve momento, sentiu o que jamais seria permitido a um mortal na Terra: contemplar a fonte de toda luz sem ser cegado. Aquilo, compreendia ele, só era possível ali, naquele reino feito para a humanidade. Contudo, não pôde manter os olhos por muito tempo, pois o brilho o envolvia como metal recém-saído do fogo, ofuscante e abrasador.

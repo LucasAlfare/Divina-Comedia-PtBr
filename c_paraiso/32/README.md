@@ -1,3 +1,9 @@
+# Paraíso, canto 32
+
+_São Bernardo esclarece a Dante a composição da rosa do Paraíso. De um lado estão os santos cristãos; do outro, os hebreus que acreditaram no Cristo que devia vir. Entre uns e outros, a Virgem Maria. Embaixo de Maria, mulheres hebraicas; mais embaixo, as crianças mortas logo depois do batismo._
+
+---
+
 Os olhos de Dante, envoltos por um brilho celestial, fixaram-se nas palavras daquele que o guiava, seu mestre, o contemplador sábio. Havia uma gravidade em sua voz que o capturou por completo. A visão diante dele era arrebatadora: uma figura que resplandecia em pureza, cercada por uma aura de serenidade. Ele soube, sem precisar de explicações, que aquela presença era Maria, a mãe de Cristo, a redentora da humanidade. E ao redor dela, outras mulheres, cujas histórias ecoaram pelas eras, sentadas em uma ordem majestosa e hierárquica. Entre elas, Raquel, Sara, Rebeca, e Judite, figuras do Antigo Testamento que haviam desempenhado papéis decisivos na linhagem que conduziria à redenção.
 
 A voz do mestre fluiu como uma melodia antiga, explicando cada detalhe com paciência, destacando as conexões entre cada uma das mulheres e o divino desígnio que se cumpria naquele instante. Ele apontou para as figuras e explicou como as mulheres que aguardavam a vinda de Cristo estavam sentadas em um lado do jardim celestial, enquanto aquelas que testemunharam sua chegada estavam posicionadas do outro lado. Era como se toda a história da humanidade convergisse para aquele momento de glória, onde a fé em Cristo, fosse ela esperada ou realizada, unia todos no jardim do paraíso.

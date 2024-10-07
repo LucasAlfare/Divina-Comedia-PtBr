@@ -1,3 +1,9 @@
+# Paraíso, canto 18
+
+_Beatriz conforta o Poeta. Cacciaguida mostra-lhe outros espíritos que combateram pela fé cristã. Sobem depois a Júpiter, onde estão as almas dos príncipes que governaram com justiça. Os espíritos se dispõem de maneira a desenhar palavras de conselho aos que governam; por último, se compõem na forma de uma águia._
+
+---
+
 O céu cintilava com uma serenidade que beirava o irreal, enquanto Dante, perdido em pensamentos profundos, se permitia saborear as palavras do espírito diante dele. A doçura do que ouvia, temperada por lembranças amargas, ecoava no mais íntimo de sua alma. Sua guia celestial, Beatriz, notou seu devaneio, e com uma voz que irradiava ternura e autoridade, disse-lhe suavemente: “Mude seus pensamentos; lembre-se de que estou próxima Daquele que desfaz toda injustiça”. Aquelas palavras, como um despertar, fizeram Dante erguer os olhos para ela, buscando consolo em sua presença. Seus olhos refletiam um amor tão puro e absoluto que as palavras falhariam em capturar a profundidade daquilo que ele sentiu naquele momento. Era como se a própria alma de Dante fosse incapaz de redigir tal emoção sem a orientação divina.
 
 Beatriz, sempre um passo à frente de suas dúvidas, continuou a guiar-lhe o olhar. Ele sabia que seu desejo por qualquer outra coisa se esvanecia sempre que encontrava o brilho eterno que emanava do rosto de sua amada guia. Era uma luz que dominava sua vontade, e, com um sorriso que parecia transbordar uma alegria inefável, ela o convidou a olhar além, dizendo: “Vire-se e escute; o Paraíso não está apenas em meus olhos”.

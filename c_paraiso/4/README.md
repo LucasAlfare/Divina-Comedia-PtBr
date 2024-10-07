@@ -1,3 +1,9 @@
+# Paraíso, Canto 4
+
+_Duas dúvidas agitam o espírito do Poeta. A primeira é relativa à doutrina platônica, segundo a qual todas as almas voltam para as estrelas de onde saíram. A outra é: se a violência tolhe a liberdade, como pode ser justo que as almas forçadas a romper os votos tenham desconto de glória? Beatriz responde à primeira dúvida restringindo o sentido da doutrina platônica. Em relação à segunda, ela diz que aquelas almas não consentiram no mal, mas não o repararam voltando ao claustro, quando tiveram a possibilidade de fazê-lo._
+
+---
+
 No silêncio profundo do Céu da Lua, Dante se encontrava dividido, atormentado por dúvidas que cresciam dentro dele, como uma corda esticada entre dois polos de tensão. Ele permanecia imóvel, tal como um cordeiro preso entre os olhares famintos de dois lobos, ou como um cão hesitante entre dois chamados. Suas dúvidas o consumiam, mas ele se mantinha calado, consciente de que qualquer palavra que proferisse seria insuficiente para expressar completamente a confusão interna que sentia.
 
 Beatriz, com sua percepção aguçada e o olhar penetrante, notou de imediato a inquietação que tomava conta de Dante. Sua presença irradiava uma calma quase sobrenatural, que contrastava com o turbilhão de emoções que fervilhava no poeta. Ela, como uma figura celestial, já conhecia as perguntas que o atormentavam, assim como um oráculo que já previa as angústias de quem o procurava.

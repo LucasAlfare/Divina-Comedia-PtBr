@@ -1,3 +1,9 @@
+# Paraíso, canto 16
+
+_O poeta orgulha-se da nobreza da sua família. Cacciaguida continua falando a respeito da própria família e da antiga Florença. Deplora a chegada em Florença de cidadãos de outras terras. Lembra as maiores famílias da cidade, muitas das quais, no tempo de Dante, estavam empobrecidas ou maculadas de infâmia._
+
+---
+
 A névoa de um passado distante pairava sobre a mente de Dante enquanto ele percorria, sob a vigilância constante de Beatriz, os recônditos etéreos do Paraíso. Cada passo, cada palavra proferida pelo espírito à sua frente, trazia à tona lembranças vívidas de uma Florença que outrora pulsava de honra e virtude. As paisagens celestiais, com luzes que oscilavam em tons dourados e prateados, moldavam-se como espelhos da alma, revelando o que o tempo e a corrupção haviam obscurecido.
 
 Enquanto Dante ouvia, uma sensação mista de reverência e curiosidade preenchia seu ser. A voz que vinha da luz à sua frente era cálida, ressoava com a sabedoria de séculos, mas trazia consigo o peso de uma história permeada por decadência e escolhas fatídicas. O espírito começou a contar sobre a antiga nobreza de Florença, uma cidade onde, naquele tempo, o sangue não era apenas uma herança de glória, mas uma promessa de moralidade. Os dias de pureza pareciam distantes agora, e Dante sentia o eco de cada palavra ricochetear em sua mente, como se pudesse ver o esplendor e a queda da sua cidade natal simultaneamente.

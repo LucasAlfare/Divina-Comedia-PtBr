@@ -1,3 +1,9 @@
+# Paraíso, canto 26
+
+_O apóstolo São João interroga Dante a respeito da terceira virtude teologal, a Caridade. Responde Dante, e seus conceitos são aplaudidos por toda a corte celeste. Beatriz reaviva no poeta a vista que estava ofuscada. Aproxima-se Adão, que lhe fala e esclarece alguns pontos duvidosos de Dante._
+
+---
+
 As luzes ao redor de Dante diminuíram, cegando sua visão por um momento, mas logo a chama que havia provocado sua momentânea escuridão liberou um sopro suave que o despertou. A voz que saía daquela luz cintilante trouxe consigo um tom sereno, porém cheio de autoridade, chamando-o à atenção: "Enquanto recuperas tua visão, será bom que te concentres na razão para compensar a falta de percepção. Fala agora, para onde tua alma aponta? E faz com que tuas palavras ajudem a guiar tua mente, mesmo enquanto tua visão ainda se desfaz."
 
 Dante, ainda envolto pelo brilho celestial e pelas dúvidas que o cercavam, sentiu-se reconfortado por aquelas palavras. Era como se o próprio universo lhe desse tempo para respirar, organizar seus pensamentos e responder com clareza. Ele sabia que a resposta exigia uma reflexão profunda sobre tudo o que havia aprendido e experienciado até aquele ponto de sua jornada. "Que o alívio para meus olhos venha, seja rápido ou lento, pois foram eles que sucumbiram ao fogo que arde em mim desde que ela, Beatriz, adentrou minha vida", respondeu Dante, com uma calma que contrastava com o tumulto interno. "O bem que traz felicidade a esta corte divina é o Alfa e o Ômega de toda a escrita que o Amor me leu, seja de forma suave ou forte."

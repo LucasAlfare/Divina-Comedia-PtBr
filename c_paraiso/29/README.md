@@ -1,3 +1,9 @@
+# Paraíso, canto 29
+
+_Beatriz esclarece a Dante que os anjos foram criados por Deus no mesmo tempo em que foram criados os céus. Fala-lhe dos anjos fiéis e dos anjos rebeldes, os quais foram precipitados no Inferno. Censura os falsos filósofos e os padres mentirosos que esquecem que o escopo da pregação é persuadir os homens a serem cristãos e vendem indulgências para obter bens materiais._
+
+---
+
 O horizonte estava pintado com as cores do crepúsculo, quando Beatriz, à minha frente, manteve seu olhar fixo e misterioso, sua face iluminada por um sorriso que parecia conter segredos profundos. Ficamos em silêncio por um momento, enquanto eu, ainda tomado pela grandiosidade do que havia testemunhado, mal conseguia conter a agitação de meus pensamentos. Ela sabia o que eu buscava, o que queria compreender. E, como se pudesse ler diretamente em minha alma, começou a falar, sua voz suave mas firme, cortando a atmosfera celestial ao nosso redor.
 
 "Eu direi aquilo que deseja saber, pois já o vi claramente onde cada 'onde' e 'quando' se unem", disse ela, sua voz ressoando como uma melodia antiga e profunda, ecoando nos confins da minha consciência. As palavras fluíam de sua boca com a naturalidade de quem possui conhecimento absoluto. "O amor eterno, aquele que precede e sustenta todas as coisas, não se manifesta para ganhar algo para si, pois nada pode ser acrescentado a sua perfeição. Mas, pelo contrário, Ele se reflete em seu esplendor infinito para poder dizer 'Eu existo', afirmando-se na eternidade."

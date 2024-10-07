@@ -1,3 +1,9 @@
+# Paraíso, canto 25
+
+_S. Tiago examina o Poeta sobre a Esperança, perguntando em que ela consiste, se ele a possui e de onde veio nele. À segunda pergunta responde Beatriz; às outras duas responde Dante. Aproxima-se S. João Evangelista e diz a Dante que o seu corpo, apesar da comum opinião, morrendo, ficara na Terra._
+
+---
+
 A escuridão cedeu lugar a um brilho silencioso quando Dante ergueu os olhos, sentindo o peso de toda a sua jornada começar a dissolver-se diante da imensidão do firmamento celestial. Ele estava cercado por luzes deslumbrantes, cada uma mais intensa que a anterior, irradiando um calor que não apenas aquecia sua pele, mas que tocava sua alma, como se a própria essência divina estivesse soprando vida em seu ser. Seu coração batia forte, mas não de medo – era uma expectativa vibrante, uma certeza inabalável de que a verdade finalmente seria revelada.
 
 A presença serena de Beatriz ao seu lado era um conforto inigualável, e seu sorriso transmitia a calma necessária para que ele não fosse esmagado pela magnitude do momento. Ela, com um brilho nos olhos, apontou para um ponto distante no céu, onde uma luz emergia, intensificando-se como uma estrela cadente que cruzava o firmamento. "Mira, Dante," sussurrou ela com uma doçura que penetrava a alma. "Aquele que te aguarda é o barão de Galícia, o homem cuja peregrinação marcou os caminhos do mundo e da fé."

@@ -1,3 +1,9 @@
+# Paraíso, canto 22
+
+_Outros espíritos bem-aventurados aproximam-se do Poeta, entre eles São Bento, o qual lhe indica alguns de seus santos companheiros; depois, lamenta profundamente a corrupção da ordem por ele fundada. Sobe, daí, o Poeta à oitava esfera, que é a das Estrelas Fixas._
+
+---
+
 Dante, envolto em um profundo espanto, virou-se para sua guia com a mesma inocência e vulnerabilidade de uma criança que, diante de uma surpresa ou medo, corre em busca da segurança dos braços confiáveis de sua mãe. Beatriz, percebendo sua inquietação e sua surpresa, aproximou-se dele com uma voz doce e tranquilizadora, tão acolhedora quanto o abraço de uma mãe que acalma o filho pálido e ofegante. Ela falou com firmeza, lembrando-o suavemente: “Não sabes que estás no céu? E que aqui, tudo o que se faz é guiado por um profundo zelo e pureza?”. Suas palavras eram claras, mas havia um peso nelas, como se quisessem recordar a Dante de algo que ele, naquele momento de estupefação, havia esquecido.
 
 Beatriz continuou, revelando a magnitude do impacto do canto celestial que Dante acabara de ouvir. Ela sorriu enquanto o observava, com um leve traço de humor na voz, quase rindo da reação que ele teve ao som que o comoveu profundamente. Ela indicou que, se ele tivesse compreendido plenamente os pedidos contidos naquele cântico, já teria uma visão clara da justiça que logo testemunharia, antes mesmo de sua própria morte. Suas palavras insinuavam mistérios, segredos e promessas de revelações que esperavam apenas o momento certo para se desvelarem.

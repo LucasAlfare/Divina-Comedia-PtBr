@@ -1,3 +1,9 @@
+# Paraíso, canto 20
+
+_A Águia louva alguns reis antigos que foram justos e virtuosos. Depois, resolve a Dante uma dúvida: como podem estar no Céu alguns espíritos que, na sua opinião, quando em vida não tinham tido fé cristã?_
+
+---
+
 As luzes do firmamento se apagavam com o cair do crepúsculo, enquanto o sol, aquele que ilumina o mundo inteiro, descia no horizonte, mergulhando o hemisfério em escuridão. A medida que a noite avançava, as estrelas tomavam seu lugar, cintilando no vasto céu, como se acendessem uma após a outra em um espetáculo silencioso, até que uma delas, mais brilhante que as outras, irradiava um brilho incomum. Essa visão celeste despertou em Dante uma lembrança profunda, um eco das ações do mundo que ele já havia testemunhado. O rosto da águia sagrada, símbolo dos líderes do universo, estava agora imóvel, silencioso, em contemplação.
 
 Subitamente, aquelas estrelas que representavam almas santas começaram a brilhar com intensidade ainda maior, e, em uníssono, seus cantos suaves e angelicais preencheram o ar ao redor de Dante, embora ele soubesse que sua mente não conseguiria reter para sempre aquela melodia divina. O amor puro que habitava naquelas vozes soava como uma chama ardente, iluminando cada nota com um brilho inefável, uma energia que só poderia surgir de pensamentos santos.

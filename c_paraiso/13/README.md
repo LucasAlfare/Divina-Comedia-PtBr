@@ -1,3 +1,9 @@
+# Paraíso, canto 13
+
+_O Poeta descreve a dança das duas coroas de espíritos celestes. S. Tomás resolve a segunda dúvida de Dante. Adão e Jesus Cristo são seres perfeitíssimos por serem obra imediata de Deus. Mas ele não pode ser comparado nem a Adão nem a Jesus Cristo. Conclui o Santo advertindo sobre o perigo dos juízos precipitados e de quanto é sujeito a enganar-se quem julga as coisas pelas aparências._
+
+---
+
 O vento frio do Paraíso tocava levemente o rosto de Dante, como um sussurro celestial que carregava consigo os ecos de revelações antigas. Ele avançava em um espaço iluminado por uma dança de luzes harmoniosas que orbitavam ao seu redor. As estrelas brilhavam com uma intensidade que superava o comum, e, acima dele, a vastidão do cosmos se revelava em uma ordem sublime e incompreensível. Dante podia sentir o peso da eternidade naquele cenário, onde o movimento dos astros parecia seguir uma lógica divina, distante da compreensão humana. As estrelas, em suas várias formações, desenhavam no céu uma coreografia cósmica, ao mesmo tempo serena e majestosa. Ele se via imerso naquele espetáculo celestial, como se o próprio universo estivesse conspirando para revelar os segredos ocultos do divino.
 
 Enquanto contemplava o movimento dos corpos celestes, Dante percebeu que o canto que ressoava não era dedicado a Baco ou a Peana, como se celebrasse feitos mortais, mas sim a três figuras em uma única natureza divina, unidas em perfeição absoluta. O cântico ecoava pelo espaço, uma melodia que parecia carregar o peso do cosmos, e cada nota trazia consigo uma verdade incontestável. Os santos que o rodeavam agora se fixavam em Dante, como se a própria luz deles estivesse curiosa por compreender o viajante que ousava se aventurar tão perto do mistério divino.

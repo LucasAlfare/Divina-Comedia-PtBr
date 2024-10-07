@@ -1,3 +1,9 @@
+# Paraíso, canto 14
+
+_Beatriz pergunta a um espírito celeste, em nome de Dante, se depois da ressurreição dos corpos permanecerá a luz que emana de suas almas e se essa luz não prejudicará a sua vista. O espírito responde que, depois da ressurreição, a vista dos espíritos aumentará. Aparecem novos espíritos. Sem perceber, Dante encontra-se no planeta Marte, onde estão aqueles que defenderam com as armas a religião cristã. Aí, o aspecto do céu vence toda beleza passada, porque quanto mais se sobe, mais cresce o esplendor dos céus._
+
+---
+
 Dante estava absorto, contemplando as esferas celestes e as vozes divinas que ecoavam ao seu redor, quando a voz de Beatriz, sempre envolta em uma serenidade que apenas os iluminados podiam alcançar, quebrou o silêncio sagrado. Suas palavras, embora suaves, penetravam a mente do poeta como água que preenche o vazio de um vaso, movendo-se com uma força que ecoava dentro e fora de si. Ele a observava atentamente, cada gesto e palavra sua era um reflexo de uma sabedoria e beleza que transcendiam o entendimento mortal. A cena celestial diante dele era imensa, mas o mais impressionante ainda estava por vir.
 
 A pergunta que pairava no ar envolvia a luz eterna que banhava aquelas almas celestes. Seria essa luz a mesma, mesmo quando os corpos, em sua forma glorificada, se reunissem com seus espíritos na ressurreição final? Dante mal podia conter a curiosidade, sentindo a urgência da resposta que estava prestes a ser revelada. E como se fossem convocados por um comando invisível, os coros de santos giraram no céu, suas vozes se elevando em uníssono, iluminadas por uma alegria ainda mais intensa que a anterior, refletindo uma bem-aventurança profunda e inesgotável. As almas, banhadas pelo amor divino, respondiam à indagação de Dante com uma clareza que rivalizava com a própria luz que as envolvia.

@@ -1,3 +1,9 @@
+# Paraíso, canto 11
+
+_Dante elogia a vida contemplativa. As palavras proferidas no canto anterior por S. Tomás criam duas dúvidas no ânimo do poeta. O santo, tratando de resolver a primeira, esboça a vida de S. Francisco de Assis._
+
+---
+
 A escuridão do desconhecimento humano pairava como um manto pesado, ofuscando a verdadeira essência da busca pela verdade. Dante, imerso em reflexões profundas, não pôde deixar de se questionar sobre as motivações que levam os homens a vagar pelas sombras de falsas certezas. As almas na Terra, em sua infinita pressa por saberes mundanos, dedicam-se a causas ilusórias: alguns se atiram às leis, outros às ciências, sacerdotes entregam-se à religião, e reis almejam o poder, seja pela força ou por artimanhas. Enquanto isso, há quem se perca nos prazeres da carne ou no ócio, esquecendo-se da verdadeira vocação que transcende os limites do material.
 
 Nesse momento, Dante, agora liberto das correntes terrenas, voava entre as estrelas ao lado de Beatriz, uma figura luminosa e imponente, que o guiava com serenidade e sabedoria. A elevação que sentia era tão sublime que nem as maiores glórias mundanas poderiam se comparar. Ao chegar ao seu destino, os espíritos celestiais retornaram às suas posições, como velas em um grande candelabro de luz, deixando o poeta envolto em uma sensação de paz, mas ainda repleto de dúvidas e incertezas que necessitavam de respostas.

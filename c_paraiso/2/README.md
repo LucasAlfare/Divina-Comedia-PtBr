@@ -1,3 +1,9 @@
+# Paraíso, canto 2
+
+_Sobem à Lua. Exortação aos leitores. Dante pergunta a Beatriz se as manchas da Lua dependem da maior ou menor densidade do astro. Beatriz confuta o erro. Todos os astros são iluminados pela virtude que, do primeiro móvel, se difunde aos céus sotopostos. Na Lua, a virtude é menor que nos outros céus._
+
+---
+
 O silêncio da imensidão celestial envolvia Dante enquanto ele e Beatriz avançavam por entre as estrelas, a luz suave da primeira esfera iluminando seus semblantes. O ar estava impregnado de uma sensação de mistério, como se cada passo que davam desvendasse segredos antigos, ocultos desde o início dos tempos. Ele sentia o peso do desconhecido pairando, um mar inexplorado que agora se estendia à sua frente. A hesitação tomou conta de seu coração, mas Beatriz, ao seu lado, permanecia serena, seus olhos brilhando com a confiança de quem já havia vislumbrado os mistérios do universo.
 
 "Ó vós, que navegais em pequenos barcos, desejosos de escutar, sigam-me com cautela", pensou Dante, suas palavras fluindo como uma prece silenciosa para aqueles que o acompanhavam em espírito. Ele sabia que a jornada à sua frente não era para os fracos de espírito. Aqueles que ousassem segui-lo sem a devida preparação poderiam se perder nas profundezas daquele mar de conhecimento, tal como marinheiros sem rumo, condenados a vagar sem jamais encontrar um porto seguro. As águas que ele agora atravessava jamais haviam sido navegadas, e seu barco era guiado por Minerva, enquanto Apolo soprava os ventos de inspiração, e as Musas o acompanhavam, apontando as constelações como guias celestiais.

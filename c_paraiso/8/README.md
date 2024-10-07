@@ -1,3 +1,9 @@
+# Paraíso, canto 8
+
+_Dante e Beatriz elevam-se à estrela de Vênus, onde estão os espíritos daqueles que outrora foram propensos às paixões amorosas. Encontram Carlos Martelo, que, referindo-se à índole mesquinha de seu irmão Roberto, explica como pode um bom pai gerar um filho mau e, enfim, quão providencial é a Natureza em seus decretos e quão vaidosos são os homens que não seguem suas indicações._
+
+---
+
 A luz suave da manhã tocava delicadamente o horizonte, como se o mundo estivesse suspenso em uma dança eterna de cores e sombras. Dante sentia o peso de sua jornada nos ombros, mas seu coração estava inflamado pela busca incessante pela verdade e pela redenção. Ao seu lado, Beatriz, sua guia e musa, irradiava uma beleza que parecia transcender o espaço e o tempo, sua presença oferecendo um conforto que afastava todas as dúvidas e medos. Eles estavam agora no terceiro céu, sob a influência da "bella Ciprigna", como os antigos acreditavam que Vênus, a deusa do amor, reinava sobre o ciclo do desejo.
 
 Sem que Dante percebesse, eles subiam lentamente, quase como se o próprio ar os elevasse, e a percepção de sua nova posição foi confirmada apenas pelo brilho ainda mais intenso que emanava de Beatriz. Ele a observou, seus olhos capturando o esplendor que parecia se intensificar à medida que sua alma se tornava mais plena de alegria e compreensão. Ao redor deles, luzes dançavam no ar como faíscas em uma chama ou como ecos de vozes que se misturavam e se separavam, movendo-se em círculos invisíveis, talvez guiadas por algum mistério interior que Dante ainda não compreendia completamente.

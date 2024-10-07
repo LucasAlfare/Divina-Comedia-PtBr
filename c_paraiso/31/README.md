@@ -1,3 +1,9 @@
+# Paraíso, canto 31
+
+_Enquanto Dante contempla a rosa do Paraíso, Beatriz sobe e vai ocupar o lugar que lhe pertence, no meio dos bem-aventurados. São Bernardo é o último guia de Dante. Ele lhe indica a Virgem Maria, toda brilhante de luz celeste._
+
+---
+
 Em meio ao vasto e etéreo cenário, a milícia sagrada surgia diante de Dante, uma visão majestosa de uma rosa branca, suas pétalas formadas pelos abençoados que, por intermédio do sangue de Cristo, haviam sido redimidos. Cada um deles, iluminados pela glória divina, exalava uma pureza inabalável. Acima deles, pairavam legiões de anjos, cujas asas douradas cortavam o céu como abelhas, descendo e subindo, imersos em um incessante cântico de louvor e adoração ao Criador. Eles se moviam com graça, como se o ar que ventilavam com suas asas carregasse uma paz celestial, imperturbável, uma chama de amor que jamais se apagava. Ao descerem, tocavam o grande campo de flores, onde a essência da sua devoção era renovada, apenas para retornarem às alturas, onde seu amor divino habitava.
 
 Dante, atordoado por aquela visão sublime, se via imerso num reino de glória e alegria, onde o tempo e o espaço não significavam nada diante da luz penetrante do divino. Cada rosto, cada gesto, irradiava uma pureza tal que nada no mundo mortal poderia igualar-se à sua magnificência. Ele se sentia como um peregrino que finalmente encontrava o santuário de sua devoção, os olhos inquietos, subindo e descendo pelas fileiras dos bem-aventurados, observando aqueles que haviam alcançado a perfeição através do amor e da caridade. Em meio àquele esplendor, Dante buscava ansiosamente Beatriz, cuja ausência fazia seu coração arder com uma mistura de esperança e saudade.

@@ -1,3 +1,9 @@
+# Paraíso, canto 12
+
+_Acabando São Tomás de falar, ajunta-se à primeira coroa de doze espíritos resplendentes mais uma coroa de igual número de espíritos. Um destes, São Boaventura, franciscano, tece louvores a São Domingos. Depois, dá notícia acerca dos seus companheiros._
+
+---
+
 O brilho das chamas sagradas parecia dançar, como se possuíssem uma vida própria, irradiando uma força espiritual que ecoava no éter celestial. A última palavra acabara de ser proferida, mas, em vez de silenciar, a luz ardente começou a girar lentamente, como uma imensa roda de energia divina. E, antes que pudesse completar seu giro completo, outra roda de luz surgiu ao seu redor, envolvendo-a em um abraço luminoso. O movimento e o cântico das duas coroas de luz estavam sincronizados de uma maneira que superava a música mortal, ecoando em uma harmonia que transcendeu as musas da terra e as sereias mais doces.
 
 Era como observar dois arcos-íris paralelos surgindo de uma névoa delicada, semelhantes em cores e intensidade, um nascendo dentro do outro. Quando Juno ordenava à sua serva criar esses sinais no céu, eles traziam consigo um presságio. E assim como o arco-íris traz a promessa de que o dilúvio jamais voltaria a inundar o mundo, essas rosas eternas de luz giravam ao redor de Dante, em um espetáculo de perfeição. A coroa externa refletia perfeitamente a interna, como se estivessem conectadas por um fio invisível de propósito divino.

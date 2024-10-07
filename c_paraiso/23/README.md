@@ -1,3 +1,9 @@
+# Paraíso, canto 23
+
+_Descem Cristo e Maria no meio de anjos e almas bem-aventuradas. Cristo, porém, logo desaparece; e o arcanjo Gabriel, em forma de chama, coroa Maria. Depois, Maria sobe ao Empíreo, reunindo-se ao seu divino Filho._
+
+---
+
 O ar fresco da noite pairava suavemente sobre a cena celestial, enquanto Beatriz permanecia atenta, de pé, como um pássaro ansioso que, ao amanhecer, espera pelo primeiro vislumbre do sol para alimentar seus filhotes. Seus olhos estavam fixos em um ponto distante no horizonte, onde o sol costumava surgir lentamente, trazendo luz ao mundo. Dante, observando sua companheira, sentia uma tensão crescente, uma mistura de desejo e esperança que o consumia, como alguém que deseja algo inatingível, mas se satisfaz com a expectativa do que está por vir.
 
 O tempo parecia ter desacelerado, mas logo o céu começou a brilhar gradualmente, preenchendo o ambiente com uma luz cada vez mais intensa. Beatriz, com um brilho em seus olhos, finalmente quebrou o silêncio: "Veja, as hostes triunfantes de Cristo! O fruto colhido de todas essas esferas!". Seu rosto parecia irradiar um fogo interior, um ardor que transbordava em pura felicidade, tão intensa que Dante mal conseguia suportar a visão.
