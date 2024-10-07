@@ -25,3 +25,6 @@ As palavras de Beatrice fluíam como a correnteza de um rio cristalino, limpando
 Beatrice o encorajou a refletir sobre as verdades que ela havia compartilhado, sugerindo que a justiça de Deus não poderia ser entendida plenamente por uma mente que ainda não estava imersa no amor divino. “Este mistério,” disse ela, “é percebido por poucos, e compreendido por ainda menos. Mas agora, meu querido Dante, tu estás mais próximo de entender. Teu coração está aberto, e o que antes era oculto começa a se revelar.”
 
 Dante sentia o peso da verdade se assentar suavemente sobre ele, uma verdade que era, ao mesmo tempo, avassaladora e reconfortante. Ele percebeu que a redenção humana, essa grandiosa jornada do erro à salvação, era um testemunho do poder do amor divino. E, enquanto ele olhava nos olhos brilhantes de Beatrice, compreendeu que esse amor era a chave para todos os mistérios que antes o haviam atormentado.
+
+| [anterior](/c_paraiso/6/README.md) | [próximo](/c_paraiso/8/README.md) |
+|----------|---------|

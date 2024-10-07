@@ -29,3 +29,6 @@ Ao ouvir essas palavras, Dante foi tomado por uma reverência ainda maior, e seu
 Logo, a canção "Regina Caeli" ecoou pelo céu, tão doce que Dante jamais esqueceria o prazer que tomou conta de sua alma naquele momento. Ele compreendeu que essas almas estavam colhendo o tesouro que haviam semeado com lágrimas durante seu exílio na Babilônia terrena, e agora triunfavam sob o olhar de Cristo e Maria, os vitoriosos do antigo e do novo concílio.
 
 No ápice desse triunfo, Dante avistou São Pedro, o guardião das chaves do céu, uma figura imponente e majestosa, simbolizando a vitória eterna que aguardava todos aqueles que seguiram o caminho da fé.
+
+| [anterior](/c_paraiso/22/README.md) | [próximo](/c_paraiso/24/README.md) |
+|----------|---------|

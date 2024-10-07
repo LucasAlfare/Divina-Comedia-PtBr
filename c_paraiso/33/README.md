@@ -11,3 +11,6 @@ Nos olhos de Dante, Maria era um farol de esperança, uma chama de caridade que 
 O guia implorou pela intercessão dela, pedindo que Dante pudesse ser agraciado com o poder de elevar seu olhar ainda mais alto, em direção à última salvação. A cada palavra, Dante sentia seu coração se inflamar com um desejo ainda maior de alcançar a visão divina. Seu próprio anseio, misturado com a devoção de seu mestre, fez com que suas preces se unissem em uma súplica poderosa.
 
 Ao final da oração, houve um silêncio profundo, mas não vazio. Era um silêncio repleto de expectativa e reverência, como se todo o universo estivesse esperando pelo próximo passo de Dante, pela próxima revelação. Ele sabia que estava prestes a testemunhar algo além de qualquer compreensão terrena, algo que o conectaria, de forma irrevogável, ao divino.
+
+| [anterior](/c_paraiso/32/README.md) |  |
+|----------|---------|

@@ -19,3 +19,6 @@ Dante ouvia atento, sua mente sedenta por mais conhecimento sobre aquelas almas 
 E então, como um relógio celestial que marca a hora do despertar da esposa de Deus, as luzes se moveram em perfeita harmonia. Tinham girado três vezes ao redor de Dante e Beatrice, e com uma sincronia divina, começaram a emitir um cântico tão doce que nem as palavras mais belas poderiam descrever. Era uma melodia que tocava diretamente na essência da alma, um eco do amor eterno que sustenta todo o universo. O poeta, imerso naquele coro divino, sentia-se parte de algo muito maior do que ele próprio, uma sinfonia de redenção e moralidade que transcendia o entendimento humano.
 
 A roda gloriosa das almas continuou a girar, cada voz elevando-se em um acorde perfeito, até que a melodia foi perdida nos confins da eternidade, deixando apenas um eco suave nos corações de quem a ouviu. Para Dante, aquele momento foi uma revelação do paraíso, uma janela para a verdade absoluta que ele tanto buscava. E no centro de tudo, a luz do Amor eterno continuava a brilhar, iluminando o caminho adiante, enquanto a jornada do poeta avançava para os reinos mais altos da beatitude celestial.
+
+| [anterior](/c_paraiso/9/README.md) | [próximo](/c_paraiso/11/README.md) |
+|----------|---------|

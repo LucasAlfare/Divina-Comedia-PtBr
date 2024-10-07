@@ -25,3 +25,6 @@ Beatriz continuou sua explicação, detalhando a segunda tríade de seres celest
 À medida que sua compreensão se expandia, Dante percebeu o quão profundas eram as revelações que lhe estavam sendo concedidas. Beatriz falou com ele sobre Dionísio, que com tanto fervor se dedicou a contemplar os mistérios dos céus que foi capaz de nomear e distinguir cada um desses seres. E então, Dante soube que até o Papa Gregório, ao chegar ao céu, sorriu de si mesmo por ter uma vez discordado dessas ordens, pois ali, na presença da verdade absoluta, ele reconheceu o erro de sua interpretação terrena.
 
 Beatriz concluiu sua explicação com serenidade: "Se um mortal na Terra revelou um segredo tão profundo, não te admires. A verdade lhe foi mostrada por aqueles que habitam aqui, assim como agora ela te é revelada."
+
+| [anterior](/c_paraiso/27/README.md) | [próximo](/c_paraiso/29/README.md) |
+|----------|---------|

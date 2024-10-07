@@ -17,3 +17,6 @@ Beatriz, mesmo tão distante, sorriu para Dante com uma ternura que só aqueles 
 Ao levantar os olhos mais uma vez, Dante foi arrebatado por uma visão grandiosa. Acima dele, mais longe do que qualquer olhar humano jamais poderia alcançar, ele avistou a Rainha Celestial. Seu trono, brilhando com uma luz que superava todas as outras, era o ponto culminante daquele vasto e glorioso panorama. Anjos rodeavam o centro, suas asas espalhadas como penas luminosas, enquanto mais de mil deles se regozijavam, cada um distinto por sua luz e arte. Em seus jogos e cânticos, Dante viu a mais pura beleza, uma felicidade que se refletia nos olhos de todos os santos ao redor.
 
 São Bernardo, notando que Dante estava completamente imerso na beleza daquele espetáculo, aproximou-se com um olhar de profunda devoção, incitando-o a continuar observando, a se deixar levar por aquela visão suprema. O poeta, agora completamente entregue àquela luz, sentia-se consumido pelo calor do amor divino, e seus olhos, fixos naquela cena de perfeição, começaram a compreender o verdadeiro sentido da paz eterna.
+
+| [anterior](/c_paraiso/30/README.md) | [próximo](/c_paraiso/32/README.md) |
+|----------|---------|

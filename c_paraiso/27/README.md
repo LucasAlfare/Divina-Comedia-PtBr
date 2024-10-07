@@ -27,3 +27,6 @@ A Terra parecia cada vez menor, a vastidão do cosmos cada vez maior, e seu dese
 Essa visão o impulsionou para cima, longe da Terra, longe do mundo físico. Em um instante, ele foi conduzido para o céu mais veloz, onde as esferas celestiais se moviam em perfeita harmonia. Cada parte do firmamento estava tão perfeitamente alinhada que ele não conseguia distinguir em qual esfera Beatriz o havia conduzido. Mas sua amada sabia, e ao ver o desejo ardente nos olhos de Dante, sorriu com uma alegria tão pura que ele sentiu como se o próprio Deus estivesse sorrindo através dela.
 
 Com uma voz suave e repleta de sabedoria, Beatriz começou a explicar os segredos da natureza e do universo, revelando como tudo o que existe se move em torno de um ponto central, a mente divina. O amor, que ilumina e movimenta tudo, era a força que governava o cosmos, e Dante começou a compreender o vasto alcance da criação. Ele, que havia testemunhado o desespero da ganância na Terra, agora via como a mente humana era puxada para baixo por essa força, impedindo que seus olhos fossem elevados para a verdade celestial.
+
+| [anterior](/c_paraiso/26/README.md) | [próximo](/c_paraiso/28/README.md) |
+|----------|---------|

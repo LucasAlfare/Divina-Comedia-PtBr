@@ -21,3 +21,6 @@ No fim de sua vida, quando a morte se aproximava, Francisco recomendou sua amada
 A voz da luz celeste suavizou-se, mas manteve o tom de urgência e sabedoria. "Agora, você pode entender a grandeza daquele que foi destinado a guiar a Igreja, a barca de Pedro, por mares turbulentos. Esse é o patriarca que você deve seguir, e aqueles que verdadeiramente o seguem carregam consigo os frutos de boas obras. No entanto, muitos de seus rebanhos se afastaram, tornando-se vorazes por novos prazeres, incapazes de se manterem unidos. Quanto mais se distanciam, mais retornam ao redil vazios, sem a abundância espiritual que deveriam carregar."
 
 Dante, envolto nas palavras profundas e nas imagens vibrantes que o cercavam, começou a entender o cerne de sua jornada, a complexidade do equilíbrio entre o céu e a Terra, e a importância de encontrar o caminho certo em meio ao caos e à dúvida. O tempo corria, mas ele sabia que ainda havia muito a ser descoberto e compreendido antes que seu destino final se revelasse.
+
+| [anterior](/c_paraiso/10/README.md) | [próximo](/c_paraiso/12/README.md) |
+|----------|---------|

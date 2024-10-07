@@ -13,3 +13,6 @@ Beatriz, percebendo o desconforto de seu companheiro, voltou-se para ele, seus o
 Com um suspiro piedoso, Beatriz explicou que todas as coisas no universo seguiam uma ordem natural, um reflexo da perfeição de Deus. Era essa ordem que movia os céus e as estrelas, que impelia cada ser a buscar seu propósito e a retornar ao seu Criador. As criaturas, sejam elas de carne ou espírito, seguem esse caminho por instinto divino, como o fogo busca o céu ou os corpos mortais são impulsionados pela força do amor. Essa providência, revelava Beatriz, era o que mantinha o cosmos em movimento e harmonia, e era também a razão pela qual Dante se encontrava em ascensão, sendo guiado pela força invisível que o chamava de volta ao ponto mais elevado de sua existência.
 
 Dante ouviu atentamente, as palavras de Beatriz ecoando em sua mente como uma melodia celestial. Tudo fazia sentido. Ele não deveria se surpreender com sua elevação, mas, ao contrário, admirar a simplicidade com que as coisas aconteciam quando não havia obstáculos em seu caminho. Beatriz, com sua presença angelical, voltou-se para o céu mais uma vez, e Dante, agora em paz com suas perguntas, deixou que seu espírito se entregasse à jornada, sabendo que muito mais estava por vir.
+
+|  | [próximo](/c_paraiso/2/README.md) |
+|----------|---------|

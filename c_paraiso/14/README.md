@@ -21,3 +21,6 @@ Então, em meio ao esplendor crescente, Dante viu algo que fez seu coração ace
 Dante, envolvido pelo esplendor dessa visão, ouviu uma melodia que o arrebatou por completo. Embora ele não pudesse compreender o hino que aquelas almas entoavam, sabia que era um louvor elevado, pois as palavras "Ressurreição" e "Vitória" ecoavam de maneira cristalina, penetrando até o âmago de seu ser. Ele estava cativado, preso por laços de amor tão doces que nada em sua vida anterior havia lhe proporcionado tamanha alegria.
 
 Enquanto o canto celestial ressoava ao seu redor, Dante percebeu que estava sendo levado a novas alturas espirituais. Ele agora entendia que sua jornada através dos céus era uma ascensão contínua em direção à pureza absoluta, uma pureza que só poderia ser alcançada ao se aproximar cada vez mais da fonte de toda a luz e amor — Deus. E, ao perceber isso, sua alma foi arrebatada por uma paz indescritível, pois sabia que estava mais perto do que nunca do seu destino final.
+
+| [anterior](/c_paraiso/13/README.md) | [próximo](/c_paraiso/15/README.md) |
+|----------|---------|

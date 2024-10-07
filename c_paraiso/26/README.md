@@ -29,3 +29,6 @@ Dante, encantado pela visão, sentiu-se como uma árvore cujas folhas balançam 
 A alma de Adão, a primeira de todas as almas, sorriu. Mesmo sem Dante dizer em voz alta, ele já conhecia os desejos profundos que ele carregava. "Teu desejo, meu filho, é mais claro para mim do que qualquer outra coisa que possas ter certeza, pois eu o vejo refletido no espelho da verdade. E através desse espelho, posso responder às perguntas que te afligem."
 
 Dante prendeu a respiração enquanto a alma continuava a falar, revelando os segredos de sua longa existência.
+
+| [anterior](/c_paraiso/25/README.md) | [próximo](/c_paraiso/27/README.md) |
+|----------|---------|

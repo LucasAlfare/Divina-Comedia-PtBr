@@ -23,3 +23,6 @@ Conforme Folco avançava em suas palavras, a conversa se dirigia a outro espíri
 À medida que a luz de Raab brilhava intensamente, o tom da conversa mudava para algo mais sombrio. Folco falava da corrupção que se espalhava pela Igreja, onde o papa e os cardeais, ao invés de se voltarem para os ensinamentos de Cristo, se preocupavam mais com as leis e decretos, desviando-se do caminho da verdade. Ele previu uma libertação próxima, quando as terras sagradas de Roma se veriam livres da mancha do pecado que agora as afligia. O peso dessas palavras ressoou profundamente em Dante, deixando-o ciente da profunda verdade contida na crítica à instituição que, outrora, deveria guiar as almas à redenção.
 
 Com essas palavras gravadas em sua alma, Dante sentiu-se novamente puxado pela luz que o cercava, enquanto o caminho à sua frente se estendia, levando-o mais profundamente no mistério divino.
+
+| [anterior](/c_paraiso/8/README.md) | [próximo](/c_paraiso/10/README.md) |
+|----------|---------|

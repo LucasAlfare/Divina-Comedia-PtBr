@@ -23,3 +23,6 @@ Dante mal podia conter sua admiração. Agora, com o olhar fixo em Justiniano, e
 No entanto, nem tudo era desespero. Justiniano apontou para as almas presentes ao seu redor, descritas como "espíritos ativos", aqueles que viveram para a honra e a fama, e que agora estavam em paz, longe da ambição desmedida. Ele falou de Romeo, um humilde servo que, mesmo tendo feito grandes obras para Raimundo Berengário, foi injustamente acusado e morreu pobre e desprezado. "Mas se o mundo soubesse o verdadeiro coração que ele tinha", disse Justiniano, "ele o louvaria ainda mais."
 
 Com essas palavras, a luz que envolvia Justiniano pareceu intensificar-se, como se a justiça divina que ele tanto exaltava estivesse agora visivelmente presente em sua aura. Dante, tocado pela profundidade do relato, sentiu uma nova compreensão se abrir diante de seus olhos. A história do império, suas glórias e falhas, não era apenas uma narrativa de conquistas militares, mas um reflexo da luta constante entre o bem e o mal, a justiça e a corrupção. E, no centro de tudo, a águia continuava seu voo, guiada por mãos humanas, mas sempre à mercê da vontade divina.
+
+| [anterior](/c_paraiso/5/README.md) | [próximo](/c_paraiso/7/README.md) |
+|----------|---------|

@@ -25,3 +25,6 @@ A voz então abaixou, como uma confissão dolorosa, e o espírito falou sobre o 
 Agora, o espírito reluzia com intensidade, e Dante percebia que suas palavras não eram apenas memórias, mas advertências. O poder, a glória e o orgulho que uma vez definiram Florença se tornaram sua ruína, e essa lição era para ele um lembrete de que a verdadeira redenção e glória só poderiam ser encontradas na humildade, na busca pela justiça divina. A cidade que antes erguia seu lírio com orgulho agora estava dividida, manchada pelo sangue de suas próprias lutas internas. 
 
 Beatriz, sempre atenta, conduziu Dante a um novo ponto da jornada, mas as palavras do espírito ainda ecoavam em sua mente, como um canto distante que nunca se desvanece completamente. Ele sabia que, à medida que subia pelos reinos celestiais, a verdade que aprenderia sobre Florença seria apenas uma parte do grande tecido que molda o destino das almas e das cidades, um lembrete constante de que nada no mundo mortal é eterno – exceto o julgamento dos céus.
+
+| [anterior](/c_paraiso/15/README.md) | [próximo](/c_paraiso/17/README.md) |
+|----------|---------|

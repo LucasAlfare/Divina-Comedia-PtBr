@@ -21,3 +21,6 @@ O diálogo entre os dois continuava a se aprofundar, com Dante cada vez mais con
 Com a serenidade de quem agora compreendia seu destino, Dante agradeceu àquele espírito iluminado, e Cacciaguida respondeu com uma benção, assegurando ao poeta que sua jornada estava apenas começando, mas que ele já havia percorrido um longo caminho. "Fui eu que te preparei para este voo," disse Cacciaguida, referindo-se à própria ascensão de Dante ao Paraíso, conduzido pelo amor e pela sabedoria de Beatriz.
 
 E então, como um sopro, o espírito de Cacciaguida se retirou, deixando Dante com uma clareza renovada sobre sua missão e destino. A jornada celestial continuava, mas agora Dante carregava consigo o conhecimento profundo de sua herança, de sua responsabilidade para com aqueles que vieram antes dele, e de seu papel na luta eterna entre o bem e o mal. O caminho à frente seria árduo, mas o poeta estava preparado para enfrentar tudo o que o aguardava, com o espírito de seus ancestrais ao seu lado, iluminando sua travessia pelas estrelas do Paraíso.
+
+| [anterior](/c_paraiso/14/README.md) | [próximo](/c_paraiso/16/README.md) |
+|----------|---------|

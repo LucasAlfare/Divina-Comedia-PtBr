@@ -15,3 +15,6 @@ Enquanto o mestre falava, algo começou a chamar a atenção de Dante: uma figur
 Dante continuou a seguir os gestos de seu guia, observando as figuras que compunham a nobreza daquele império celestial. Ali, ao lado de Maria, estavam figuras chave da fé cristã: Pedro, o apóstolo a quem Cristo confiou as chaves do paraíso; Moisés, o líder do povo escolhido, que conduziu a humanidade pelo deserto da incerteza; e João Batista, o profeta que preparou o caminho para o Messias. A cada nome, a cada rosto, Dante sentia o peso da história e a magnitude do plano divino, onde cada um tinha seu papel, seu propósito.
 
 O tempo no paraíso, no entanto, era fugaz. O mestre, com a sensibilidade de um alfaiate que ajusta a vestimenta com precisão, sugeriu que aquele seria o momento de cessar as explanações. Agora, era hora de focar no Primeiro Amor, no esplendor divino que iluminava todo o jardim celestial. Com uma reverência suave, o mestre iniciou uma oração, convidando Dante a se juntar em espírito e emoção. Ele sabia que o próximo passo de sua jornada dependeria da graça, e essa graça deveria ser implorada com humildade e fé.
+
+| [anterior](/c_paraiso/32/README.md) | [próximo](/c_paraiso/33/README.md) |
+|----------|---------|

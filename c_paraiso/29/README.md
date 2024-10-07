@@ -31,3 +31,6 @@ A visão de Beatriz era clara e precisa, como se toda a complexidade do cosmos s
 Suas últimas palavras ecoaram em minha mente, como se tivessem sido gravadas nas estrelas. "Contempla, então, a grandeza do eterno valor, que se multiplica em tantos espelhos sem jamais perder sua unidade."
 
 E, naquele instante, percebi que, embora cada anjo fosse um reflexo individual da divindade, todos estavam unidos em uma única verdade, um único amor, um único propósito. A jornada não havia terminado, mas, de alguma forma, um novo entendimento começava a se formar dentro de mim.
+
+| [anterior](/c_paraiso/28/README.md) | [próximo](/c_paraiso/30/README.md) |
+|----------|---------|

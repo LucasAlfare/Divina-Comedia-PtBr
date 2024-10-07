@@ -25,3 +25,6 @@ A voz celestial então se calou por um momento, dando espaço para a mente de Da
 Dante sentiu a pressão de suas dúvidas, e o temor de perder sua vida futura, cercado por aqueles que, em algum momento, o julgariam injustamente. Ele sabia que as verdades que havia aprendido em sua longa jornada seriam amargas para muitos, e temia ser excluído do convívio com os homens de seu tempo. Mas a luz radiante em que residia todo o seu tesouro espiritual brilhou ainda mais forte, refletindo como um espelho dourado sob os raios do sol. A resposta foi clara e direta: "A verdade, por mais que seja difícil de ouvir, deve ser dita. Deixe que aqueles que têm feridas sintam o incômodo. Se tua voz for desconfortável no início, ela acabará por nutrir as almas depois que a verdade for digerida. Teu grito será como um vento poderoso, atingindo os picos mais altos, e isso será motivo de honra."
 
 Com essas palavras, Dante sentiu uma renovada sensação de propósito.
+
+| [anterior](/c_paraiso/16/README.md) | [próximo](/c_paraiso/18/README.md) |
+|----------|---------|

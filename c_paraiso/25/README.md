@@ -25,3 +25,6 @@ Quando Dante terminou suas palavras, um coro celestial ecoou ao redor, entoando 
 Beatriz, observando tudo com uma serenidade inabalável, finalmente quebrou o silêncio. "Este é aquele que repousou sobre o peito do nosso Salvador," disse ela, referindo-se a João, o apóstolo amado. "E foi ele, na cruz, que recebeu o grande encargo de Cristo." Dante, absorvendo cada palavra, tentou fixar sua visão naquela figura, mas foi advertido pelo espírito. "Por que te cega o desejo de ver o que não pertence a este lugar?" perguntou o espírito com suavidade. "Meu corpo está na terra, junto aos outros, aguardando o dia em que nosso número esteja completo segundo o plano eterno."
 
 Essas palavras encerraram o cântico, e o fogo que antes dançava ao redor de Dante começou a se aquietar. As chamas suaves cessaram seu movimento, como remos que param de bater na água ao som de um único comando. Dante, tocado pela magnitude do que acabara de vivenciar, voltou-se para Beatriz, mas, para sua surpresa e consternação, não conseguiu vê-la claramente, apesar de estar tão próximo dela. No entanto, sabia, sem dúvida, que estava no caminho certo, na jornada para a eterna felicidade.
+
+| [anterior](/c_paraiso/24/README.md) | [próximo](/c_paraiso/26/README.md) |
+|----------|---------|

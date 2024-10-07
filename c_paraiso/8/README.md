@@ -27,3 +27,6 @@ Quando Dante expressou sua dúvida sobre como o doce fruto do amor poderia gerar
 Finalmente, a luz deixou Dante com uma última reflexão: se a humanidade seguisse a natureza e sua harmonia com o divino, o mundo seria um lugar muito melhor. Mas, em vez disso, os homens frequentemente distorciam essa ordem, colocando em posições de poder aqueles que deveriam ser pastores e fazendo reis de homens que nunca deveriam empunhar uma espada. Isso, pensava Dante, era o grande erro da humanidade.
 
 E assim, o espírito se afastou, deixando Dante imerso em suas próprias reflexões sobre o destino, a providência e o papel da humanidade no grande plano divino. Enquanto ele olhava ao redor, o céu parecia mais brilhante, e, por um breve momento, ele sentiu que compreendia um pouco mais da vasta teia de segredos que sustentava o universo.
+
+| [anterior](/c_paraiso/7/README.md) | [próximo](/c_paraiso/9/README.md) |
+|----------|---------|

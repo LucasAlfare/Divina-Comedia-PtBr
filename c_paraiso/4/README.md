@@ -27,3 +27,6 @@ Ela explicou que o que Picarda falava era sobre sua "vontade absoluta" — uma v
 Com as palavras de Beatriz, a paz desceu sobre o espírito perturbado de Dante. Ele sentiu o peso de suas dúvidas dissipar-se como névoa ao sol, e, em um impulso de gratidão e reverência, ele se dirigiu a ela: "Ó divindade amada, cujas palavras me inundam de luz e calor, não posso expressar com palavras a profundidade da minha gratidão. Que aquele que tudo vê e tudo pode seja quem responda por mim."
 
 A resposta de Beatriz veio com a clareza do próprio céu. "A mente humana jamais se sacia enquanto não se ilumina pela verdade, e não há verdade fora da que emana diretamente da fonte divina." E com essas palavras, Dante sentiu-se novamente inspirado a buscar mais conhecimento, ainda que soubesse que a cada resposta encontraria novas dúvidas a serem resolvidas. Essa era, afinal, a natureza da alma humana, sempre ansiando por mais, sempre buscando alcançar a verdade suprema.
+
+| [anterior](/c_paraiso/3/README.md) | [próximo](/c_paraiso/5/README.md) |
+|----------|---------|

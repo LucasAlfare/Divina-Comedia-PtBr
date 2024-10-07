@@ -21,3 +21,6 @@ A visão diante de Dante se expandia. Ele compreendeu que aquelas luzes, aquelas
 Ao concluir sua prece, Dante voltou seu olhar para a Terra e refletiu sobre como a guerra, que antes se fazia com espadas em nome da justiça e da fé, agora era travada de maneira sutil, com o pão da vida sendo negado àqueles que precisavam. Ele sentiu a dor dessa corrupção e advertiu àqueles que destruíam a vinha pela qual Pedro e Paulo morreram, lembrando-os de que esses santos ainda viviam em espírito, testemunhando os males que assolavam a Terra.
 
 E assim, em meio à grandiosidade dos céus e ao brilho das estrelas, Dante contemplava o equilíbrio precário entre a justiça divina e a corrupção humana, sentindo o peso de sua jornada e o chamado para buscar a redenção, tanto para si quanto para aqueles que ainda lutavam no mundo abaixo.
+
+| [anterior](/c_paraiso/17/README.md) | [próximo](/c_paraiso/19/README.md) |
+|----------|---------|

@@ -21,3 +21,6 @@ Após essa sombria revelação, São Bento se recolheu à companhia das outras a
 Agora, com o espírito elevado e com a voz de Beatriz mais uma vez guiando-o, Dante sentiu-se chamado a olhar para baixo, para o mundo que ele havia deixado. A pedido de sua guia, ele lançou seus olhos para as esferas inferiores, e viu a Terra, um globo tão pequeno e insignificante que ele não pôde evitar sorrir ao perceber a futilidade de tantos conflitos e ambições humanas. Ao contemplar as estrelas e os movimentos celestes, Dante compreendeu melhor as leis que governavam o cosmos, o equilíbrio perfeito entre os planetas, e a ordem estabelecida pelo Criador.
 
 E, por fim, seus olhos foram atraídos de volta aos "olhos belos" de Beatriz, sempre presentes, sempre firmes, prontos para guiá-lo ao próximo passo de sua jornada celestial. A luz da esperança e da redenção ainda ardia diante dele, e Dante, apesar de todo o mistério e as revelações, estava agora mais perto de compreender a vastidão do divino do que jamais estivera.
+
+| [anterior](/c_paraiso/21/README.md) | [próximo](/c_paraiso/23/README.md) |
+|----------|---------|

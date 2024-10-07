@@ -27,3 +27,6 @@ Como um rio poderoso, ele fluiu para onde as heresias se enraizavam mais profund
 “Agora”, continuou a voz, “se essa foi uma das rodas da carruagem que defendeu a Santa Igreja em sua batalha civil, então a excelência da outra deve ser ainda mais clara para você. Tomás de Aquino, que te falou antes de minha chegada, exemplificou isso com grande cortesia.” No entanto, o legado de Tomás havia sido corrompido, e o caminho que ele traçou estava agora coberto de mofo, onde antes havia apenas pureza. Seus seguidores, que antes andavam com os pés firmes em suas pegadas, agora haviam se desviado, e os tempos colheitas ruins se aproximavam.
 
 A voz finalmente se silenciou, deixando Dante imerso nas imagens poderosas da história e nas advertências proféticas que ela continha. A jornada de redenção e moralidade continuava, mais profunda e cheia de mistérios a cada passo.
+
+| [anterior](/c_paraiso/11/README.md) | [próximo](/c_paraiso/13/README.md) |
+|----------|---------|

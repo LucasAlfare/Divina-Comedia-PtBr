@@ -23,3 +23,6 @@ Beatriz então o conduziu a um experimento mental, sugerindo que ele usasse espe
 Enquanto falava, ela revelou a Dante os segredos da criação, como as esferas celestiais eram movidas por uma inteligência divina, e como cada corpo celestial era permeado pela virtude de sua origem, irradiando sua própria forma de vida e luz, assim como a alma anima o corpo humano. "Dessa virtude", concluiu ela, "vem a diferença que percebes entre luzes brilhantes e sombrias, não da densidade ou rarefação dos corpos, mas da essência que os anima."
 
 As palavras de Beatriz ecoaram na mente de Dante, e ele percebeu, com um arrepio de compreensão, que estava mais próximo da verdade do que jamais estivera.
+
+| [anterior](/c_paraiso/1/README.md) | [próximo](/c_paraiso/3/README.md) |
+|----------|---------|

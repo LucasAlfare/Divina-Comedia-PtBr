@@ -29,3 +29,6 @@ Com isso, a corte celestial ecoou em cânticos de louvor, um "Deus louvado" reve
 Dante, com uma reverência profunda, declarou sua crença em um Deus único, eterno, movido por amor e desejo. Ele explicou que não só acreditava pela razão, mas também pela verdade revelada através dos profetas, dos salmos e dos evangelhos. E com firmeza, declarou sua fé na Trindade, uma essência única e três pessoas, indivisíveis em sua unidade. A alma que o examinava, em resposta, envolveu Dante com uma luz intensa, cantando bênçãos sobre ele, como um mestre satisfeito com a resposta de seu aluno.
 
 Quando o cântico terminou, Dante permaneceu em silêncio, cercado pela luz apostólica, e soube, naquele momento, que suas palavras haviam agradado profundamente a quem o interrogava.
+
+| [anterior](/c_paraiso/23/README.md) | [próximo](/c_paraiso/25/README.md) |
+|----------|---------|

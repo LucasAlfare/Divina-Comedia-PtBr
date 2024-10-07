@@ -27,3 +27,6 @@ As revelações fluíam como uma corrente de clareza, cada palavra da águia eco
 A águia, com sua voz de autoridade e clareza, revelou que aquelas almas que Dante contemplava não eram escolhidas por acaso, mas pelo desígnio divino, um desígnio que transcende o entendimento humano. O mistério da predestinação, ela explicou, estava além do alcance dos mortais e até mesmo dos bem-aventurados, pois nem todos os eleitos eram conhecidos, mesmo para aqueles que já viam a face de Deus. Contudo, a águia concluiu, em sua ignorância estava a doçura da perfeita conformidade com a vontade divina. 
 
 Dante, agora iluminado por essa “medicina suave”, sentia sua visão limitada sendo ampliada.
+
+| [anterior](/c_paraiso/19/README.md) | [próximo](/c_paraiso/21/README.md) |
+|----------|---------|

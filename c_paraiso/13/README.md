@@ -19,3 +19,6 @@ As palavras eram profundas, carregadas de uma sabedoria que transcendia o tempo.
 O santo concluiu seu discurso com uma advertência. "Não sejas rápido em julgar", ele aconselhou, trazendo à tona metáforas poderosas. Ele havia visto o inverno cruel se transformar na primavera mais gloriosa, o rigor de um arbusto espinhoso dar lugar à flor mais bela, e um navio que outrora navegava veloz em águas calmas, perecer tragicamente ao alcançar a foz de um rio. Sua advertência era clara: o destino das almas, das ações e das vidas era incerto e sempre sujeito a mudanças imprevisíveis.
 
 Dante, absorvendo cada fragmento de sabedoria, sentia-se cada vez mais conectado ao mistério e à profundidade da existência. A jornada espiritual que ele havia empreendido não era apenas uma viagem pelos céus, mas uma exploração profunda da natureza da moralidade, da redenção e da verdade. Enquanto a luz de São Tomás se fundia novamente com o coro celestial, Dante sabia que a sua compreensão do divino havia sido transformada para sempre. Ele não era mais apenas um espectador da criação, mas um participante, um espírito em busca de algo maior, algo que só poderia ser alcançado através da verdadeira sabedoria e da humildade diante do imenso mistério da existência.
+
+| [anterior](/c_paraiso/12/README.md) | [próximo](/c_paraiso/14/README.md) |
+|----------|---------|

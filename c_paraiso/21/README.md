@@ -23,3 +23,6 @@ A alma então instruiu Dante a levar essa mensagem de volta ao mundo mortal, par
 A resposta veio com uma revelação inesperada. Era Pedro Damião, o monge eremita que vivia nos ermos do monte Catria, perto da terra natal de Dante, um lugar sagrado dedicado à devoção solitária. Ele descreveu como sua vida no mosteiro fora dedicada à contemplação, sustentada apenas pelo óleo das oliveiras, enquanto passava por calor e frio sem queixas. Aquele local, antes fértil em espiritualidade, havia se tornado vazio e decadente. Pedro Damião fora chamado para o alto ofício da Igreja no fim de sua vida, mas lamentava como a instituição havia decaído desde então.
 
 Enquanto ele falava, mais luzes desceram a escada celestial, cada uma girando em esplendor, como se cada movimento aumentasse a beleza de todas as outras. Em torno de Pedro, essas chamas divinas se reuniram, soltando um grito tão poderoso que Dante foi incapaz de entender, subjugado pela intensidade do som, como se o próprio céu tivesse clamado em uníssono.
+
+| [anterior](/c_paraiso/20/README.md) | [próximo](/c_paraiso/22/README.md) |
+|----------|---------|

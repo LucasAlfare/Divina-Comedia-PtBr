@@ -19,3 +19,6 @@ Ao longe, o brilho de uma rosa dourada se expandia, suas pétalas se desdobrando
 Beatriz continuou, sua voz cheia de uma sabedoria que ultrapassava o tempo. "Mas mesmo ele, escolhido para guiar, será traído pela corrupção, e aqueles que deveriam caminhar ao seu lado escolherão outro caminho, um caminho que o levará ao mesmo destino sombrio de Simão Mago." Sua voz parecia ressoar com a justiça divina, como se o destino daqueles que ignoram o verdadeiro caminho já estivesse selado.
 
 E assim, Dante permaneceu, absorvendo cada detalhe, cada revelação, com o coração inflamado por uma nova compreensão.
+
+| [anterior](/c_paraiso/29/README.md) | [próximo](/c_paraiso/31/README.md) |
+|----------|---------|

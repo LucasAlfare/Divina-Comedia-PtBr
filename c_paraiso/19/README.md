@@ -23,3 +23,6 @@ Aquelas palavras penetravam fundo no espírito de Dante, dissipando suas dúvida
 A imagem continuou, suas palavras vibrando com uma sabedoria que transcendia o tempo. "A muitos que clamam o nome de Cristo, será reservado um lugar distante no julgamento final, enquanto aqueles que nunca ouviram falar de sua existência podem estar mais próximos da salvação do que imaginam. A justiça divina não é algo que possa ser calculado com a lógica humana. É uma luz que só pode ser compreendida por aqueles que se deixam guiar por ela."
 
 Dante, agora iluminado por uma nova compreensão, olhava em direção à imagem alada que, com cada movimento, refletia a sabedoria e a verdade eterna. O universo parecia mais vasto e profundo do que nunca, e ele percebeu que estava apenas começando a entender as complexidades da justiça divina, que transcendem qualquer entendimento terreno.
+
+| [anterior](/c_paraiso/18/README.md) | [próximo](/c_paraiso/20/README.md) |
+|----------|---------|
