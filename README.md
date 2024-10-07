@@ -8,17 +8,17 @@ Por enquanto estarei guardando basicamente uma adaptação em prosa dos livros. 
 
 Por fim, além destes conteúdos, também estou tentando guardar em forma de coleção, narrações dos cantos, geradas por computador. No momento, as narrações podem ser acessadas e ouvidas no meu canal pessoal do YouTube, através das playlists:
 
-- [Inferno](https://www.youtube.com/playlist?list=PLhLOnH9KU7x-miI6I3OXZftMeoq_IOFF9);
-- [Purgatório](https://www.youtube.com/playlist?list=PLhLOnH9KU7x-CfaEWVYRcSj0YAhmuyTtS);
-- [Paraíso](https://www.youtube.com/playlist?list=PLhLOnH9KU7x9TSVvE47M5eQNjbxYqscSy).
+- [Inferno](https://www.youtube.com/playlist?list=PLhLOnH9KU7x-miI6I3OXZftMeoq_IOFF9) (playlist);
+- [Purgatório](https://www.youtube.com/playlist?list=PLhLOnH9KU7x-CfaEWVYRcSj0YAhmuyTtS) (playlist);
+- [Paraíso](https://www.youtube.com/playlist?list=PLhLOnH9KU7x9TSVvE47M5eQNjbxYqscSy) (playlist).
 
 # Índice dos livros em Prosa
 
 Abaixo estão os links/referências para os cantos iniciais de cada livro:
 
-- [Inferno, canto 1](/a_inferno/1/README.md)(livro em progresso);
-- [Purgatório, canto 1](/b_purgatorio/1/README.md)(livro em progresso);
-- [Paraíso, canto 1](/c_paraiso/1/README.md)(adaptação finalizada).
+- [Inferno, canto 1](/a_inferno/1/README.md) (livro em progresso);
+- [Purgatório, canto 1](/b_purgatorio/1/README.md) (livro em progresso);
+- [Paraíso, canto 1](/c_paraiso/1/README.md) (adaptação finalizada).
 
 # Contribuições
 
