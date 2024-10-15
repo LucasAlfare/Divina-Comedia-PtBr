@@ -4,29 +4,43 @@ _Duas dúvidas agitam o espírito do Poeta. A primeira é relativa à doutrina p
 
 ---
 
-No silêncio profundo do Céu da Lua, Dante se encontrava dividido, atormentado por dúvidas que cresciam dentro dele, como uma corda esticada entre dois polos de tensão. Ele permanecia imóvel, tal como um cordeiro preso entre os olhares famintos de dois lobos, ou como um cão hesitante entre dois chamados. Suas dúvidas o consumiam, mas ele se mantinha calado, consciente de que qualquer palavra que proferisse seria insuficiente para expressar completamente a confusão interna que sentia.
+Eu estava dividido entre dois desejos conflitantes, sentindo-me preso em uma encruzilhada mental. Era como se estivesse diante de dois pratos de comida igualmente tentadores, mas tão distantes um do outro que qualquer tentativa de escolha parecia impossível. Mais ainda, imaginei-me como uma ovelha perdida entre dois lobos famintos, incapaz de decidir para onde ir. O silêncio que me envolvia era resultado dessa hesitação, da necessidade de processar o turbilhão de dúvidas que dominavam minha mente.
 
-Beatriz, com sua percepção aguçada e o olhar penetrante, notou de imediato a inquietação que tomava conta de Dante. Sua presença irradiava uma calma quase sobrenatural, que contrastava com o turbilhão de emoções que fervilhava no poeta. Ela, como uma figura celestial, já conhecia as perguntas que o atormentavam, assim como um oráculo que já previa as angústias de quem o procurava.
+Mesmo calado, era impossível esconder a inquietação. Meu rosto revelava tudo, cada desejo, cada pergunta que queimava dentro de mim, ansiosa por uma resposta. Eu nem precisava falar; minhas expressões diziam tudo. Beatriz percebeu imediatamente. Como Daniel diante de Nabucodonosor, ela captou o tumulto interno que eu estava experimentando e, com um tom calmo, quase maternal, começou a dissipar a névoa de confusão.
 
-"Eu vejo claramente," começou Beatriz, com uma voz que reverberava como a corrente suave de um rio de sabedoria, "que seu espírito está dividido entre dois desejos conflitantes. Suas dúvidas se entrelaçam de tal forma que prendem sua mente, impedindo que você as expresse com clareza." Suas palavras ecoaram com autoridade, e o ar ao redor parecia vibrar com a intensidade de sua sabedoria.
+"Vejo bem", disse ela, seus olhos penetrantes encontrando os meus, "como você está dividido entre esses dois desejos, ambos te pressionando de formas diferentes, a ponto de sua mente se enredar, incapaz de encontrar uma saída. Primeiro, você se pergunta como é possível que uma boa vontade seja diminuída pela violência alheia. E depois, o retorno das almas às estrelas, segundo a doutrina de Platão, também o faz vacilar."
 
-Dante ouviu atentamente, absorvendo cada sílaba como um discípulo diante de uma mestra iluminada. As dúvidas que o afligiam giravam em torno da natureza da vontade humana e do mérito das almas que sofreram violências físicas sem consentimento pleno. Como poderia, ele se perguntava, a violência diminuir o mérito de uma boa vontade, se esta nunca se rendeu completamente à força? E, mais perturbador ainda, como poderiam as almas retornar às estrelas, conforme Platão sugerira, se as Escrituras e os ensinamentos cristãos indicavam outro caminho?
+Ela fez uma breve pausa, e nesse intervalo, eu absorvia suas palavras, como se fossem as primeiras gotas de chuva após uma longa seca. O que viria a seguir seria a chave para libertar-me desse impasse.
 
-Beatriz, serena, começou a esclarecer essas questões com a paciência de quem compreende as complexidades da alma humana. "As almas que você viu aqui não residem neste céu por merecimento ou sorte," ela explicou, seus olhos brilhando com uma luz celestial. "Elas apareceram aqui como um sinal para que você possa entender as alturas que não alcançaram. Porém, todas as almas dos abençoados desfrutam da mesma presença divina, independentemente de onde se manifestem a você."
+"Vamos tratar dessas questões, uma de cada vez", continuou ela, "começando pela que mais lhe causa desconforto. Os grandes espíritos, como Moisés, Samuel, e o próprio João, não ocupam um lugar mais elevado no céu do que as almas que você viu. A diferença está na intensidade com que experimentam a eternidade. Eles aparecem nestas esferas não porque lhes pertençam de fato, mas para que você possa compreender a estrutura celestial através de sua mente limitada."
 
-Dante sentiu uma onda de compreensão tomar conta de sua mente, como se uma cortina estivesse sendo erguida, revelando a verdade que sempre esteve lá, oculta apenas por sua própria incapacidade de ver além das aparências. Beatriz continuou, traçando um paralelo entre as Escrituras e a maneira como a verdade é revelada aos mortais. "Assim como a Sagrada Escritura adapta sua linguagem para que vocês possam entender, também os céus se mostram de forma que suas mentes, ainda presas ao sensível, possam aprender."
+Sua explicação era clara, mas cheia de camadas. As palavras de Beatriz tinham um peso que ecoava em mim de forma quase física. Ela estava me guiando através de um labirinto de ideias, mas fazia isso com tanta suavidade que eu me sentia flutuando ao lado dela, sem pressa, absorvendo cada detalhe.
 
-A voz de Beatriz era como um bálsamo para a alma de Dante, acalmando suas preocupações iniciais, mas ao mesmo tempo, provocando novas reflexões. Ela desafiou a ideia platônica de que as almas retornariam às estrelas, explicando que esse conceito, se interpretado literalmente, levaria à confusão, desviando as mentes dos homens para falsos deuses e astros como Júpiter, Mercúrio e Marte. Era uma visão que havia corrompido o pensamento humano por séculos, mas que agora, sob a luz da verdade divina, se dissolvia diante dele.
+"Quanto à segunda questão, a que se refere ao retorno das almas às estrelas, isso não é literal. Platão, ao que parece, falava de forma simbólica, indicando o impacto das influências celestiais nas almas, não um retorno físico."
 
-Beatriz então abordou a questão da violência, desdobrando a complexa teia de escolhas e sacrifícios que se entrelaçam na vontade humana. Mesmo diante da força, explicou ela, a vontade sempre possui um grau de liberdade, tal como o fogo que, embora possa ser forçado, ainda mantém sua natureza. "Se a vontade fosse completamente dobrada pela violência, então as almas poderiam ser desculpadas. Mas, se houvesse nelas uma vontade firme e inquebrantável, como a de São Lourenço na grelha ou de Múcio que sacrificou sua própria mão, elas teriam retornado ao caminho justo, mesmo sob coerção."
+Eu sentia que começava a compreender, mas havia ainda outra dúvida que surgia, e Beatriz, percebendo minha hesitação, se adiantou.
 
-Essas palavras ecoaram no coração de Dante, desvendando mais uma camada de verdade. No entanto, havia ainda uma última dúvida que o incomodava: o que Picarda dissera sobre sua própria escolha de vida, e como isso parecia contradizer a ideia de uma vontade imutável. Ele não podia ignorar o fato de que Picarda havia afirmado ter sido arrancada do convento contra sua vontade, mas Beatriz, com uma paciência divina, esclareceu o aparente paradoxo.
+"A violência só pode ser desculpa quando a vontade daquele que a sofre não colabora de forma alguma. Contudo, essas almas que você viu poderiam, sim, ter resistido à força, assim como São Lourenço e Muzio Scevola, que mantiveram sua vontade inabalável mesmo sob tortura."
 
-Ela explicou que o que Picarda falava era sobre sua "vontade absoluta" — uma vontade pura e sem influência de pressões externas, enquanto ela, Beatriz, referia-se à "vontade relativa," que, embora pressionada por forças externas, ainda consentia de algum modo, temendo cair em uma situação ainda pior. Assim, ambas as versões estavam corretas em seu próprio contexto, e o entendimento de Dante, finalmente, se alinhou.
+As palavras de Beatriz me atingiram como uma onda poderosa, desatando os nós em minha mente. Ela estava me levando a entender que a vontade humana, mesmo sob pressão, ainda tinha algum controle, alguma escolha, por menor que fosse.
 
-Com as palavras de Beatriz, a paz desceu sobre o espírito perturbado de Dante. Ele sentiu o peso de suas dúvidas dissipar-se como névoa ao sol, e, em um impulso de gratidão e reverência, ele se dirigiu a ela: "Ó divindade amada, cujas palavras me inundam de luz e calor, não posso expressar com palavras a profundidade da minha gratidão. Que aquele que tudo vê e tudo pode seja quem responda por mim."
+"Agora você vê", disse ela suavemente, "por que essas almas não podem ser totalmente desculpadas pela violência que sofreram. Suas vontades cederam, mesmo que apenas um pouco, e é por isso que estão onde estão."
 
-A resposta de Beatriz veio com a clareza do próprio céu. "A mente humana jamais se sacia enquanto não se ilumina pela verdade, e não há verdade fora da que emana diretamente da fonte divina." E com essas palavras, Dante sentiu-se novamente inspirado a buscar mais conhecimento, ainda que soubesse que a cada resposta encontraria novas dúvidas a serem resolvidas. Essa era, afinal, a natureza da alma humana, sempre ansiando por mais, sempre buscando alcançar a verdade suprema.
+Eu estava começando a encontrar respostas, mas ainda havia algo que me incomodava. O contraste entre as palavras de Beatriz e o que Picarda havia dito sobre a força e a violência ainda me perturbava. Mais uma vez, Beatriz antecipou minha dúvida.
+
+"Picarda falou da vontade absoluta", explicou ela, "enquanto eu me referia à vontade relativa, aquela que cede por medo de um mal maior. Ambas as afirmações são verdadeiras, mas em diferentes contextos."
+
+Sua clareza era desconcertante. Ela havia destrinchado os dilemas mais complexos de maneira tão simples, e ainda assim, eu sentia que só estava arranhando a superfície do que ela realmente queria me ensinar.
+
+"Ó amada do primeiro amor", murmurei, a voz saindo com reverência, quase sem que eu percebesse. "Você ilumina minha mente e meu coração com suas palavras de uma forma que nunca pensei ser possível. Não sei como poderia agradecê-la."
+
+Ela me olhou com uma intensidade que fez minha alma tremer, e eu percebi que estava na presença de uma verdade que transcendia todas as minhas preocupações. O que antes parecia distante e inatingível agora estava ao meu alcance, bastava estender a mão e aceitar o conhecimento que me era oferecido.
+
+Mas ainda havia mais uma questão que eu precisava levantar. Com o coração acelerado, olhei para Beatriz e perguntei se uma pessoa poderia, de alguma forma, compensar as promessas não cumpridas com outros atos, equilibrando a balança divina.
+
+Ela me olhou com aqueles olhos cheios de uma luz indescritível, e por um breve momento, eu quase me perdi na profundidade de seu olhar. As faíscas de amor que emanavam dela eram tão poderosas que minhas forças fraquejaram, e tive que desviar o olhar, vencido pela intensidade de sua presença.
+
+Quase me perdi, mas sabia que logo ela me guiaria mais uma vez.
 
 | [anterior](/c_paraiso/3/README.md) | [próximo](/c_paraiso/5/README.md) |
 |----------|---------|
