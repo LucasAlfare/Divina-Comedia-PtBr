@@ -6,6 +6,8 @@ A ideia do repositório é ter uma "pequena" base de dados em forma de coleção
 
 Por enquanto estarei guardando basicamente uma adaptação em prosa dos livros. Além disso, em cada pasta dos livros, pretendo adicionar extras relacionados a cada um, como por exemplo imagens, planos de fundo, miniaturas para futuros vídeos, etc.
 
+Quanto ao texto dos livros, por enquanto estou gerando uma "versão inicial" dos mesmos usando LLM de OpenAI ChatGPT. Isso deve fornecer os textos iniciais que poderão ser, pouco a pouco, ajustados para uma linguagem mais humana e natural, caso não estejam nessa confirmidade. Pretendo alterá-los gradativamente para uma linguagem não tão formal e escrevê-los de acordo com minha própria linguagem, caso eu tenha disponibilidade.
+
 Por fim, além destes conteúdos, também estou tentando guardar em forma de coleção, narrações dos cantos, geradas por computador. No momento, as narrações podem ser acessadas e ouvidas no meu canal pessoal do YouTube, através das playlists:
 
 - [Inferno](https://www.youtube.com/playlist?list=PLhLOnH9KU7x-miI6I3OXZftMeoq_IOFF9) (playlist);
