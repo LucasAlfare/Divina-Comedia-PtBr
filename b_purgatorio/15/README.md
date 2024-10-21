@@ -1,4 +1,4 @@
-Purgatório, canto 15
+# Purgatório, canto 15
 
 A sensação de caminhar pelos círculos do Purgatório tornava-se mais densa conforme o sol se inclinava em direção ao ocaso, quase como se o tempo estivesse escapando pelas minhas mãos, diluindo-se entre o dia e a noite. O peso da jornada começava a afetar-me, não apenas fisicamente, mas mentalmente. Eu sentia uma estranha pressão em minha testa, como se uma força invisível estivesse sobrecarregando minha mente, enquanto o brilho do sol, que já não estava mais em seu auge, incidia diretamente no meu rosto. Instintivamente, levantei as mãos e protegi meus olhos, tentando bloquear a luz que parecia intensificar-se de forma quase sobrenatural.
 
