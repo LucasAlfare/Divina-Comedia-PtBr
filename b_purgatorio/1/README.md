@@ -16,5 +16,5 @@ Depois de purificado, Virgílio me conduziu até um junco que crescia próximo d
 
 Aquele lugar, até então desconhecido por mim, começava a se mostrar mais familiar. Havia uma serenidade ali que eu não sentia há muito tempo, uma promessa de que, apesar de tudo o que havia visto no Inferno, havia um caminho para a redenção.
 
-|  | [próximo](/c_paraiso/2/README.md) |
+|  | [próximo](/b_purgatorio/2/README.md) |
 |----------|---------|
