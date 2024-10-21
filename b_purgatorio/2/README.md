@@ -1,4 +1,4 @@
-Purgatório, Canto 2
+# Purgatório, Canto 2
 
 O sol estava baixando no horizonte, seu brilho dourado cobria Jerusalém com um manto de luz enquanto o céu parecia ser gradualmente envolvido pelas sombras da noite. Eu podia sentir o ar mudar, uma leve brisa soprando, enquanto a noite surgia no lado oposto do mundo, carregando consigo o equilíbrio perfeito entre luz e escuridão. As primeiras estrelas começaram a brilhar no firmamento, enquanto a bela aurora, que costumava colorir o céu com tons de rosa e vermelho, começava a desbotar, envelhecida pelo avançar da manhã.
 
@@ -29,3 +29,6 @@ Aproveitei a oportunidade e, com um misto de emoção e nostalgia, pedi: “Se u
 Com um sorriso, ele começou a cantar “Amor que na minha mente ressoa” de uma maneira tão doce que parecia que cada nota penetrava meu ser. Virgílio, eu, e todos ao redor, ficamos completamente imersos na melodia, como se o tempo houvesse parado. Estávamos todos concentrados, quando uma voz firme nos tirou desse estado.
 
 "Que estão fazendo, espíritos lentos? Qual é essa negligência? Corram para o monte e livrem-se daquilo que impede que a visão de Deus se revele a vocês!" A voz era do venerável Catão, que nos lembrava da urgência de nossa jornada. As almas que haviam parado de cantar deixaram o local rapidamente, correndo em direção ao monte, como pombos que abandonam o grão ao menor sinal de perigo, impulsionados por uma preocupação maior. E assim, nós também partimos, sem hesitação.
+
+| [anterior](/b_purgatorio/1/README.md) | [próximo](/b_purgatorio/3/README.md) |
+|----------|---------|

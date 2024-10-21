@@ -1,4 +1,4 @@
-Purgatório, Canto 8
+# Purgatório, Canto 8
 
 Era o fim da tarde, aquela hora mágica em que o desejo se acende no coração dos navegantes, uma saudade melancólica que envolve quem já disse adeus aos seus amigos queridos. Um desejo sutil, quase imperceptível, que pica o coração do viajante solitário, como uma campainha distante que parece lamentar o fim do dia. Eu sentia essa melancolia invadir minha alma, como se cada pulsar do tempo me levasse mais perto de algo inevitável, mas, ao mesmo tempo, distante e etéreo.
 
@@ -19,3 +19,6 @@ Enquanto ele falava, meus olhos, quase por instinto, se voltaram ao céu, buscan
 De repente, Sordello interrompeu, apontando para o vale: “Olhe, nosso inimigo!” Seguindo o gesto de sua mão, vi uma serpente deslizando pela grama, seu corpo sinuoso e liso refletindo uma malícia ancestral. Era uma visão terrível, uma lembrança do pecado original. No entanto, antes que ela pudesse se aproximar, os anjos desceram rapidamente, suas asas verdes cortando o ar com tal velocidade que a serpente fugiu imediatamente. O perigo passara, mas a tensão permanecia no ar, uma lembrança de que a batalha entre o bem e o mal nunca estava distante.
 
 A sombra que conversava com Nino voltou sua atenção para mim. Currado Malaspina, um homem de nobre linhagem, pediu notícias de sua terra, a Val di Magra, e das pessoas que lá viviam. Eu não havia estado lá, mas conhecia sua fama, e lhe assegurei que o nome de sua casa ainda era honrado em toda a Europa, conhecido por sua integridade e justiça, imune à corrupção que dominava tantas outras famílias nobres. Ele, com um sorriso satisfeito, disse que, em breve, eu veria com meus próprios olhos a verdade de suas palavras.
+
+| [anterior](/b_purgatorio/7/README.md) | [próximo](/b_purgatorio/9/README.md) |
+|----------|---------|

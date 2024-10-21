@@ -1,4 +1,4 @@
-Purgatório, Canto 9
+# Purgatório, Canto 9
 
 A noite já havia cedido terreno para o alvorecer, como se a amante de Titônio, a aurora, surgisse no horizonte, banhada pela luz, lentamente afastando-se dos braços de seu querido. As estrelas, dispostas em forma do escorpião, brilhavam frias, e o céu parecia um vasto campo de joias, enquanto a noite avançava por sua marcha silenciosa. O tempo já havia percorrido metade do caminho quando, finalmente, fui vencido pelo sono e me deitei na grama fresca, junto ao lugar onde antes estávamos todos sentados. 
 
@@ -19,3 +19,6 @@ Ele então retirou duas chaves, uma dourada e outra prateada, de seu manto. Usan
 Ao ouvir o portão se abrir, senti uma vibração profunda. O som metálico ecoou, como o rugido de uma fera antiga, mas ali, não havia medo. Pelo contrário, o som se misturou a uma música celestial, um cântico que parecia emanar de vozes divinas. Reconheci o hino "Te Deum laudamus", e a beleza daquela melodia me envolveu, como se estivesse sendo levado para dentro de uma catedral celestial, onde a fé e a esperança se materializavam no ar.
 
 Enquanto subíamos, o caminho para a redenção estava à nossa frente, claro e definitivo, mas ao mesmo tempo misterioso e repleto de desafios. Olhei para Virgílio, que avançava à minha frente, seguro em sua missão. Eu sabia que cada passo nos aproximava da purificação, mas também que a jornada estava apenas começando.
+
+| [anterior](/b_purgatorio/8/README.md) | [próximo](/b_purgatorio/10/README.md) |
+|----------|---------|

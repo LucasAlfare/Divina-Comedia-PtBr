@@ -1,4 +1,4 @@
-Purgatório, canto 12.
+# Purgatório, canto 12
 
 Enquanto eu caminhava lado a lado com aquela alma oprimida, avançávamos como bois atrelados a um jugo invisível. Seguíamos o ritmo que nosso gentil guia permitia, e por um breve momento, o peso do fardo parecia se dissipar sob sua vigilância. No entanto, a paz foi interrompida quando ele disse, com uma voz firme, que eu devia continuar sozinho dali em diante, como um barco impulsionado pelo próprio remo e vela. Aquela era a oportunidade de cada um de nós, ele alertou, de navegar com suas próprias forças, de conquistar a redenção com seus próprios meios. Assim, mesmo que meus pensamentos ainda pesassem sobre mim, levantei-me, endireitando o corpo, pronto para a nova etapa da jornada.
 
@@ -21,3 +21,6 @@ Enquanto avançávamos pela encosta, o canto dos "Beati pauperes spiritu" ecoava
 Ele sorriu antes de responder: "Os 'P' que ainda restam em sua testa, marcados por aquele que carrega as chaves do Paraíso, estão desaparecendo. Quando todos forem apagados, seu desejo de subir será tão forte que nem sentirá mais o esforço de caminhar. Será como se os próprios pés o empurrassem para cima, movidos pela força de sua vontade". 
 
 Com essas palavras, minha mão subiu instintivamente até minha testa, onde senti ainda seis letras gravadas. Meu mestre, percebendo meu gesto, apenas sorriu com um olhar compreensivo.
+
+| [anterior](/b_purgatorio/11/README.md) | [próximo](/b_purgatorio/13/README.md) |
+|----------|---------|

@@ -1,4 +1,4 @@
-Purgatório, Canto 1
+# Purgatório, Canto 1
 
 O céu começava a tingir-se de um azul suave, como um zaffiro oriental, e eu sentia o peso da escuridão se afastando. O ar ao meu redor, antes denso e pesado, agora se tornava mais leve, permitindo que meus pulmões respirassem novamente. Era como se o tormento da jornada pelo Inferno estivesse, finalmente, atrás de nós. O horizonte se abria à minha frente, iluminado pelo planeta Vênus, sua luz suave e reconfortante, anunciando a chegada de um novo dia. À medida que meus olhos se ajustavam à nova paisagem, me voltei para o céu e avistei, pela primeira vez, quatro estrelas brilhantes, tão belas e puras que me perguntei como era possível que, até aquele momento, eu nunca as tivesse visto. Elas reluziam com uma serenidade que parecia carregar consigo promessas de redenção e esperança. "O céu do norte está vazio dessas estrelas", pensei, lamentando os que viviam na escuridão, sem a graça de testemunhar tal espetáculo.
 
@@ -15,3 +15,6 @@ Quando chegamos à beira do oceano, Virgílio se abaixou e, com delicadeza, espa
 Depois de purificado, Virgílio me conduziu até um junco que crescia próximo da água. Ele o arrancou com cuidado e, num gesto que parecia quase ritualístico, envolveu minha cintura com aquela planta humilde. E então, algo extraordinário aconteceu: o junco que havia sido arrancado cresceu novamente, como se a terra, ou algo maior, estivesse recompensando aquele ato de humildade.
 
 Aquele lugar, até então desconhecido por mim, começava a se mostrar mais familiar. Havia uma serenidade ali que eu não sentia há muito tempo, uma promessa de que, apesar de tudo o que havia visto no Inferno, havia um caminho para a redenção.
+
+|  | [próximo](/c_paraiso/2/README.md) |
+|----------|---------|

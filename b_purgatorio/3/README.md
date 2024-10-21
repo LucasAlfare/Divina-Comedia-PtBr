@@ -1,4 +1,4 @@
-Purgatório, Canto 3
+# Purgatório, Canto 3
 
 A montanha diante de mim erguia-se como uma muralha intransponível, quase zombando de nossos esforços, enquanto o céu, tingido de um alaranjado crepuscular, começava a desfazer as sombras do passado. Ao meu lado, Virgílio parecia absorto, sua presença sempre sólida, um farol de confiança, apesar das dúvidas que vez ou outra me assaltavam. 
 
@@ -29,3 +29,6 @@ Uma das almas se adiantou e falou: "Quem quer que você seja, vire-se e veja se 
 "Eu sou Manfredi", disse ele, ainda com um sorriso triste, "neto da imperatriz Constança. Peço que, quando você retornar, conte à minha filha, que é o orgulho de Sicília e Aragão, a verdade sobre mim, caso tenha ouvido algo diferente. Depois que fui mortalmente ferido, me voltei em lágrimas àquele que sempre está pronto a perdoar. Os pecados que cometi foram graves, mas a misericórdia divina é infinita e me acolheu, como a todos que se arrependem."
 
 A história de Manfredi me tocou profundamente, e prometi a ele que levaria sua mensagem.
+
+| [anterior](/b_purgatorio/2/README.md) | [próximo](/b_purgatorio/4/README.md) |
+|----------|---------|

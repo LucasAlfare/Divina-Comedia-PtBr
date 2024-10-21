@@ -1,4 +1,4 @@
-Purgatório, Canto 5
+# Purgatório, Canto 5
 
 Enquanto caminhávamos pela ladeira íngreme, seguindo os passos firmes do meu mestre, o ar ao nosso redor era pesado, carregado com a expectativa de algo iminente. O céu sobre nós era de um cinza contínuo, uma mistura de sombras e luz que oscilava como a própria barreira entre o mundo material e o espiritual. Não havia tempo para descanso, mas o cansaço em meus membros parecia arrastar minha alma junto, criando uma sensação quase sufocante.
 
@@ -19,3 +19,6 @@ Antes que eu pudesse responder, outro espírito falou, com uma voz que carregava
 E então, uma terceira voz, suave, quase um sussurro, mas carregada de uma tristeza melancólica, interrompeu a conversa. "Lembre-se de mim," disse ela, "quando voltar ao mundo dos vivos. Eu sou Pia... Siena me deu à luz, mas foi nas terras inóspitas da Maremma que encontrei meu fim." Havia um silêncio pesado em suas palavras, como se a memória de seu sofrimento fosse uma sombra que nunca poderia ser dissipada.
 
 Enquanto essas almas falavam, percebi que cada uma carregava consigo a marca de uma vida interrompida, mas, ao mesmo tempo, a esperança de redenção. Elas buscavam não apenas serem lembradas, mas redimidas. E eu, como um viajante entre dois mundos, era o portador dessa esperança. Seguindo os passos do meu guia, sabia que, de alguma forma, suas preces haviam sido ouvidas, e que, ao longo da minha jornada, eu também aprenderia o peso do perdão e da memória, e o valor de carregar essas almas comigo até o fim da minha própria travessia.
+
+| [anterior](/b_purgatorio/4/README.md) | [próximo](/b_purgatorio/6/README.md) |
+|----------|---------|

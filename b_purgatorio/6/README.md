@@ -1,4 +1,4 @@
-Purgatório, Canto 6
+# Purgatório, Canto 6
 
 O ar quente e sufocante parecia tornar-se ainda mais denso conforme avançávamos. Cada passo era uma luta, mas eu sentia a urgência me empurrar adiante, como se um peso invisível me conduzisse por aquela multidão de almas sofredoras. Havia algo perturbador no ar — o murmúrio constante de vozes que rogavam por redenção, ecoando como uma súplica contínua, interminável. Elas pediam não por si mesmas, mas por intercessão, esperando que suas preces fossem atendidas por aqueles ainda vivos.
 
@@ -21,3 +21,6 @@ Esse momento de reconciliação trouxe um pensamento sombrio à minha mente. A I
 A visão da nossa Roma, que outrora fora o centro do mundo, agora parecia mais uma viúva desolada, clamando por seu imperador ausente. E aqueles que deveriam cuidar dela? Onde estavam? Em meio àquele cenário, a indignação crescia dentro de mim, quase sufocante. A cidade que um dia fora o coração pulsante do Império agora se afogava em suas próprias lágrimas, chamando por um salvador que não viria. Viria?
 
 Enquanto subíamos, o peso dessa verdade me esmagava. O cenário diante de nós se desenhava cada vez mais como um lembrete da fragilidade e da corrupção da humanidade, mas também da esperança que, mesmo na escuridão, persistia.
+
+| [anterior](/b_purgatorio/5/README.md) | [próximo](/b_purgatorio/7/README.md) |
+|----------|---------|

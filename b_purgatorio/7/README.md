@@ -1,4 +1,4 @@
-Purgatório, Canto 7
+# Purgatório, Canto 7
 
 Enquanto eu seguia meu guia fiel, Sordello nos recebeu com gestos corteses, repetidos três ou quatro vezes, como se quisesse enfatizar a importância de nossa chegada. Em seguida, com uma expressão firme e respeitosa, perguntou quem éramos.
 
@@ -25,3 +25,6 @@ Virgílio então indicou que não deveríamos nos aproximar ainda. "Melhor obser
 O olhar de Sordello percorreu o grupo de almas à nossa frente, identificando cada uma delas. Ele apontou um homem sentado em uma posição altiva, que parecia ignorar o que acontecia ao seu redor. Era Rodolfo, o imperador, aquele que poderia ter curado as feridas mortais da Itália, mas falhou. Outro homem, com uma postura igualmente nobre, era Ottacchero, que governara as terras onde os rios Moldava e Elba nascem. Mais à frente, um homem se batia no peito em arrependimento; seu rosto estava marcado pela dor e pelo peso de suas escolhas. Sordello nos contou que ele fora pai e sogro dos que trouxeram desgraça à França. A amargura em suas ações mostrava o quanto lamentava seu papel nessa história.
 
 Cada alma, cada figura, tinha sua própria história de lutas, fracassos e arrependimentos, todos ali reunidos, esperando a redenção que um dia lhes seria concedida. Eu observava com uma mistura de fascínio e compaixão, sentindo-me mais próximo, de alguma forma, das falhas humanas que agora estavam sendo expostas diante de mim.
+
+| [anterior](/b_purgatorio/6/README.md) | [próximo](/b_purgatorio/8/README.md) |
+|----------|---------|

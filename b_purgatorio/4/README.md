@@ -1,4 +1,4 @@
-Purgatório, Canto 4
+# Purgatório, Canto 4
 
 Enquanto subíamos lentamente pela encosta íngreme e rochosa, o cansaço pesava sobre meus ombros como se o próprio monte fosse feito de chumbo. Cada passo parecia uma batalha entre meu corpo exausto e a vontade de seguir em frente, mas a visão de Virgílio à minha frente, determinado e incansável, me impulsionava a continuar. O sol, já alto no céu, marcava cinquenta graus, mas eu sequer havia notado o tempo passar, tão absorto estava nas palavras do espírito que acabara de ouvir. Era como se o próprio conceito de tempo se esvaísse naquele lugar, dissolvido no ar rarefeito das alturas.
 
@@ -29,3 +29,6 @@ Reconheci o homem imediatamente. Era Belacqua, uma figura que sempre associara �
 Ele respondeu com uma amargura resignada. "Irmão, subir para quê? O anjo não me deixará passar para os tormentos. Preciso ficar aqui o tempo que perdi em vida, esperando. A não ser que uma oração em meu nome suba ao céu, estou preso. De que adianta as outras, se não são ouvidas?"
 
 Enquanto ele falava, percebi que Virgílio já estava subindo novamente, e sua voz, agora distante, me chamou. "Vamos, está quase na hora. O sol já atingiu o zênite, e as sombras da noite começam a cobrir o Marrocos." Com um último olhar para Belacqua, levantei-me e segui meu guia, o peso da jornada mais leve, mas o fardo do destino cada vez mais presente.
+
+| [anterior](/b_purgatorio/3/README.md) | [próximo](/b_purgatorio/5/README.md) |
+|----------|---------|
