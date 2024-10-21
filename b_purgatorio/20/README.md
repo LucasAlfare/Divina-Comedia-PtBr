@@ -1,4 +1,4 @@
-Purgatório, canto 20
+# Purgatório, canto 20
 
 O ar frio da manhã no Purgatório envolvia meu corpo como uma fina névoa, enquanto caminhava ao lado de Virgílio. Cada passo era uma luta entre o meu desejo e as forças que me puxavam em direções contrárias. Ainda assim, eu seguia, decidido, como uma esponja que, mesmo sem se saciar, é retirada da água. O caminho era estreito e sinuoso, e nós nos movíamos lentamente, como se avançássemos ao longo das muralhas de uma fortaleza, com o precipício à nossa esquerda e a rocha sólida à direita. Lá embaixo, as almas, essas sombras lastimosas, choravam silenciosamente, derramando lágrimas como gotas que caíam pesadas, carregadas do peso do mundo e dos seus pecados.
 

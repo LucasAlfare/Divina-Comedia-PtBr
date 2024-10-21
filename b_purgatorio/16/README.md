@@ -1,4 +1,4 @@
-Purgatório, canto 16
+# Purgatório, canto 16
 
 A escuridão era densa, como o próprio Inferno. Uma noite sem estrelas ou luz, onde o céu parecia ser engolido por nuvens negras. O ar estava saturado com uma neblina sufocante, mais opaca do que qualquer treva que eu havia conhecido até então. O fumo que nos envolvia era quase tangível, fazendo com que meus olhos lacrimejassem e queimassem, obrigando-me a fechá-los, incapaz de suportar o tormento. 
 

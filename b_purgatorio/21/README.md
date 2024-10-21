@@ -1,4 +1,4 @@
-Purgatório, canto 21
+# Purgatório, canto 21
 
 A subida pela encosta da montanha era lenta, quase excruciante. Cada passo parecia mais pesado que o anterior, como se a própria gravidade estivesse determinada a testar meus limites. A sede natural, aquela que jamais se sacia, ardia dentro de mim, e o desejo de continuar avançando, seguindo Virgílio por aquele caminho estreito e desafiador, só fazia a dor parecer mais intensa. A sensação de justiça divina, de estar pagando pelos pecados do mundo, era palpável. Cada pedra sob os meus pés me lembrava da culpa humana, e do fardo que carregávamos.
 

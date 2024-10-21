@@ -1,4 +1,4 @@
-Purgatório, canto 18
+# Purgatório, canto 18
 
 O silêncio pairava sobre nós como uma névoa densa, quase palpável. As palavras do Mestre ainda ressoavam na minha mente, profundas e enigmáticas, enquanto ele me observava com aqueles olhos penetrantes, tentando discernir se eu havia compreendido tudo o que ele dissera. Mas, mesmo que ele tivesse terminado de falar, algo dentro de mim continuava a arder, como uma sede insaciável por mais conhecimento, por mais respostas. Eu não conseguia me expressar, como se o temor de parecer inconveniente ou de sobrecarregar o Mestre com minhas perguntas me impedisse de abrir a boca. Por dentro, no entanto, minha mente fervilhava com questionamentos: será que eu estava abusando da paciência do meu guia com minhas dúvidas incessantes?
 

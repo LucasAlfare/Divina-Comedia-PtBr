@@ -1,4 +1,4 @@
-Purgatório, canto 19
+# Purgatório, canto 19
 
 Eu caminhava pelas profundezas de minha própria mente, envolvido em pensamentos quando a noite começava a ceder ao alvorecer. Era a hora do dia em que o calor do sol não tinha mais força para aquecer o frio da lua, derrotado pela terra, às vezes até por Saturno. Um momento entre dois mundos, quando os geomantes enxergam seus presságios no céu, surgindo do oriente, como uma pequena luz antes da aurora.
 
