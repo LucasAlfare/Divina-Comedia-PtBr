@@ -32,5 +32,5 @@ Suas palavras pesaram sobre mim. A confissão de sua avareza, o peso que o levou
 
 Inclinei-me em reverência, prestes a falar, mas ele me interrompeu com uma leve reprimenda: "Por que te curvas a mim?" — disse. "Levanta-te, irmão! Sou servo, assim como você. Não erraste, somos todos iguais aos olhos de Deus."
 
-| [anterior](/b_purgatorio/118/README.md) | [próximo](/b_purgatorio/20/README.md) |
+| [anterior](/b_purgatorio/18/README.md) | [próximo](/b_purgatorio/20/README.md) |
 |----------|---------|
