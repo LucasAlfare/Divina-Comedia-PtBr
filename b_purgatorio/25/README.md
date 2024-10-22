@@ -1,3 +1,5 @@
+# Purgatório, canto 25
+
 O calor do sol já começava a se dissipar, seu círculo dourado movendo-se lentamente em direção ao zodíaco, mergulhando no signo de Touro, enquanto a noite despontava no horizonte, dominada por Escorpião. Senti o peso desse momento, como se o próprio ar estivesse carregado de um mistério inescapável, mas não podíamos parar, não agora. Como um viajante que, mesmo diante de obstáculos, sente a necessidade de continuar, impelido por um impulso irresistível, seguimos em frente, subindo pela íngreme trilha diante de nós. A escada estreita parecia conspirar contra nós, separando-nos, mas a pressão da jornada era muito maior que o desconforto.
 
 Enquanto subia, meu coração se dividia entre a vontade urgente de fazer perguntas e o medo de parecer inoportuno. Era como um jovem pássaro, incerto sobre quando alçar voo, suas asas ansiosas, mas receosas de deixar o ninho. Essa hesitação me consumia até o momento em que, finalmente, não pude mais resistir.
