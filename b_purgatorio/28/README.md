@@ -1,0 +1,26 @@
+# Purgatório, canto 28
+
+Atravessando a floresta densa e viva, senti o perfume do amanhecer misturando-se ao ar ao meu redor. Não pude resistir por mais tempo, e, deixando a margem atrás, avancei com passos lentos sobre o solo, que exalava um aroma fresco de todos os lados. Cada passo parecia me levar mais fundo em um mundo de suavidade e tranquilidade. O vento leve tocava minha fronte com a suavidade de um sopro divino, acariciando as folhas das árvores ao meu redor. O som das folhas ao vento não era forte, mas reverberava de forma quase sagrada, como se o próprio Monte Purgatório estivesse nos guiando, inclinando-se na direção onde a primeira sombra tocava.
+
+Ao longe, ouvi o canto alegre dos pássaros que, escondidos entre os galhos, enchiam o ar com melodias cheias de vida e paz. As árvores pareciam se curvar suavemente, mas sem perder a dignidade de suas formas eretas, enquanto o som dessas criaturas celestes enchia o espaço, como uma sinfonia em perfeita harmonia. A sensação de estar dentro dessa floresta, dessa catedral viva, era sobrepujante, e cada som, cada movimento das folhas ao vento, parecia parte de um plano maior, como se o próprio universo estivesse em equilíbrio.
+
+Enquanto me deixava ser guiado pelos meus passos vagarosos, notei que já havia me afastado bastante. O ponto de entrada na floresta agora estava perdido para mim, escondido pela vasta imensidão verde ao meu redor. Foi então que meu progresso foi interrompido por um rio que corria sereno à minha esquerda. Suas águas eram tão puras e cristalinas que ofuscavam todas as outras que já havia visto, como se aquele rio contivesse a essência de algo mais profundo, algo divino, refletido na escuridão tranquila de suas ondas. O som suave da água me atraiu, e, instintivamente, me aproximei, observando o contraste do brilho das plantas que cresciam em suas margens.
+
+Foi nesse momento que vi algo surpreendente. Ali, à beira do rio, uma mulher caminhava sozinha, cantando suavemente enquanto colhia flores de diferentes cores e formas ao longo de sua trilha. Seu movimento era gracioso, quase sobrenatural, como se cada passo estivesse em sincronia com a própria música da natureza. Senti uma súbita e intensa curiosidade. Ela irradiava uma serenidade que me fez pensar na própria Proserpina, quando perdida nas profundezas do Hades, ainda tocada pela beleza da primavera que havia deixado para trás.
+
+"Deixe-me me aproximar de você", disse, minha voz se elevando no silêncio da floresta. "Quem é você, tão imersa nessa luz, tão envolvida em amor? Venha até a margem, permita-me ouvir o que você canta."
+
+A mulher, como se tivesse ouvido meus pensamentos, parou e se virou em minha direção. Seus pés, quase flutuando sobre as flores vermelhas e amarelas que marcavam seu caminho, moveram-se delicadamente, como uma dançarina que mal toca o chão. Ela aproximou-se devagar, seus olhos castos e luminosos agora voltados para mim, como se tivesse aceitado o meu pedido com a mesma suavidade de seu andar. Quanto mais ela se aproximava, mais clara sua voz se tornava, e percebi que o que ela cantava era mais que uma melodia: era um segredo, algo profundo que eu precisava compreender.
+
+Quando chegou à margem, onde as ondas do rio já tocavam suavemente as plantas, seus olhos finalmente se ergueram e encontraram os meus. A luz em seus olhos era tão intensa que, por um momento, pensei estar diante de Vênus, não em sua forma habitual, mas no auge de sua beleza, como se tivesse sido atingida por uma flecha de seu próprio filho. Ela sorriu, e o mundo ao meu redor pareceu brilhar um pouco mais.
+
+“Vocês são novos aqui, não é?”, começou ela, sua voz tão doce quanto o som da água correndo. “Talvez o sorriso em meu rosto esteja causando alguma confusão em vocês, mas não precisam temer. Este lugar foi escolhido para ser o berço da humanidade, um paraíso onde a alma pode encontrar seu verdadeiro lar.” Ela fez uma pausa, deixando que suas palavras ecoassem em meus pensamentos. O salmo "Delectasti" veio à minha mente, trazendo uma luz nova ao que eu havia começado a compreender.
+
+Aproximei-me mais, tentando processar tudo o que ela dizia, enquanto o som da floresta e do rio parecia conspirar para me guiar em direção a uma verdade mais profunda. “A água e os sons desta floresta desafiam aquilo em que eu acreditava até agora”, confessei, a dúvida ainda persistente em minha voz. Ela sorriu novamente, com paciência e compreensão.
+
+“A fonte desta água é pura”, explicou, seus olhos refletindo a luz suave da floresta ao redor. “Ela não é como os rios que conhecem no mundo, que ganham e perdem força conforme as estações mudam. Esta água flui de uma fonte eterna, alimentada pelo próprio desejo divino. De um lado, essa água apaga as memórias do pecado; do outro, ela revive em vocês o bem que já fizeram.”
+
+Conforme suas palavras flutuavam até mim, o significado desse lugar se tornava mais claro. Estávamos em um mundo onde a pureza e a redenção se entrelaçavam em um ciclo sem fim, onde as sombras do passado eram lavadas, e a alma encontrava nova vida.
+
+| [anterior](/b_purgatorio/27/README.md) | [próximo](/b_purgatorio/29/README.md) |
+|----------|---------|
