@@ -1,0 +1,24 @@
+# Purgatório, canto 33
+
+O ar fresco da uma manhã purgatorial soprava gentilmente quando as mulheres, em suas vozes melódicas e serenas, começaram a entoar "Deus, venerunt gentes". Três ou quatro vozes entrelaçaram-se em uma harmonia sublime, enquanto lágrimas deslizavam de seus olhos, e eu, parado à distância, observava, completamente capturado por aquela cena tocante. Beatrice, minha guia e razão de estar ali, ouvia o cântico, sua expressão transbordando compaixão. Algo em seu semblante a fazia lembrar Maria ao pé da cruz – era uma dor profunda, mas envolta em ternura. Meu coração apertou-se ao ver o peso da responsabilidade que ela carregava.
+
+Quando as outras mulheres cederam espaço a Beatrice, ela se ergueu, seu corpo irradiando uma luz intensa, como se suas palavras viessem de um lugar além do alcance humano. Ela começou a falar, sua voz firme e repleta de significado: "Modicum, et non videbitis me; et iterum, sorelle mie dilette, modicum, et vos videbitis me." O significado dessas palavras – tão cheias de presságios – reverberava em meu espírito, ainda que eu não as compreendesse completamente naquele momento. Era como se ela estivesse dizendo algo sobre ausência e retorno, algo que eu deveria captar, mas que estava além de minha capacidade imediata de compreensão.
+
+Seguimos então, Beatrice à frente, as outras sete virgens atrás, e logo depois, eu, a misteriosa dama e o sábio. O caminho que percorríamos era coberto de sombras e luzes entrelaçadas, e a própria terra parecia pulsar com cada passo que dávamos, como se o próprio solo sentisse nossa presença. Meus pensamentos se agitavam em torno do que aconteceria a seguir, quando, de repente, os olhos de Beatrice encontraram os meus. A intensidade do seu olhar fez meu coração acelerar. Sua voz soou clara e firme: "Venha mais depressa." O comando era direto, mas não havia severidade, apenas uma urgência contida. Apressei meus passos, sentindo que algo importante estava prestes a ser revelado.
+
+Quando finalmente alcancei seu lado, ela perguntou com um tom firme, quase de repreensão: "Irmão, por que você não se atreve a me fazer perguntas?" Sua presença era tão esmagadora que, mesmo tendo tantas dúvidas, minhas palavras mal conseguiam sair. A reverência que sentia por ela parecia me sufocar. Consegui apenas murmurar: "Senhora, você conhece minhas necessidades e o que é bom para mim." Mas Beatrice não queria minha submissão cega. "Quero que você supere o medo e a vergonha, que fale não como alguém que sonha, mas como alguém que busca a verdade com consciência desperta."
+
+Ela então começou a falar de coisas que, em minha ignorância, mal pude acompanhar. Falou de vingança divina e de uma águia, de tempos que viriam e de estrelas propícias que trariam justiça à Terra. Palavras enigmáticas – um "cinquecento diece e cinque" – ecoaram na minha mente, mas a mensagem parecia se desvanecer enquanto eu tentava agarrá-la. Sua fala, cheia de mistério, parecia tão distante quanto o horizonte, e senti-me pequeno diante da sabedoria que ela transmitia. Era como se meu intelecto estivesse petrificado, incapaz de absorver plenamente o que Beatrice me dizia.
+
+Quando tentei perguntar, confuso, ela apenas sorriu. "Não se lembra que hoje você bebeu das águas do Letes?" Claro! O esquecimento trazido pelas águas do rio tinha apagado certas lembranças, obscurecendo minha mente. Ela sabia disso, e mesmo assim insistia em me despertar para verdades maiores. Algo em seu sorriso, embora enigmático, me confortou. Era como se estivesse dizendo: "Você entenderá quando for a hora certa."
+
+Logo, chegamos a uma clareira onde as sete mulheres se detiveram sob a sombra de árvores imponentes. À nossa frente, dois rios – o Eufrates e o Tigre – surgiam de uma única fonte, fluindo juntos como antigos amigos que, após uma longa jornada, se separam lentamente. "Que águas são essas?", perguntei, sentindo que o mistério da paisagem diante de mim carregava um simbolismo profundo. Beatrice olhou para mim com um sorriso compreensivo e sugeriu que eu perguntasse a Matelda, a bela mulher que nos acompanhava. Matelda, sempre solícita, explicou-me tudo, e cada palavra dela parecia desvendar um pedaço do véu que cobria meu entendimento.
+
+Ainda assim, sentia-me envolto em um nevoeiro, até que Beatrice, percebendo minha dificuldade, ordenou que Matelda me guiasse até o Eunoé, o outro rio purificador. Assim como uma alma gentil que prontamente se curva à vontade de outra, Matelda tomou-me pela mão e, com um sorriso delicado, disse a Stazio, nosso companheiro sábio: "Venha conosco."
+
+Ao beber daquelas águas cristalinas, algo dentro de mim despertou completamente. Era como se minha alma, antes adormecida, estivesse agora plenamente renovada. O cansaço que carregava desde o início desta jornada desapareceu, e senti-me puro, disposto a ascender às estrelas.
+
+Eu estava pronto para o que viria a seguir.
+
+| [anterior](/b_purgatorio/32/README.md) |  |
+|----------|---------|
