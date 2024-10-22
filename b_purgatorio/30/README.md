@@ -1,4 +1,4 @@
-Purgatório, canto 30
+# Purgatório, canto 30
 
 Eu caminhei em meio àquela atmosfera pesada, o ar carregado de simbolismos e promessas antigas. Sentia como se cada passo fosse guiado por uma força invisível, uma espécie de destino que me levava adiante. O céu sobre mim estava imóvel, um zênite que nunca conheceu ocaso nem aurora, e que me alertava constantemente para a responsabilidade que carregava. Parecia que todo o universo, assim como eu, aguardava em uma expectativa silenciosa. Na minha frente, os espíritos que haviam chegado antes entre o Grifo e a multidão se viraram para a carruagem com uma reverência quase sagrada, como se finalmente estivessem encontrando a paz que buscavam há tanto tempo.
 
