@@ -1,5 +1,9 @@
 # Purgatório, Canto 9
 
+_Ao despontar do novo dia, Dante adormece e, no sono, é transportado por Luzia até a Porta do Purgatório. Aproximam-se da entrada e, aqui, um anjo abre-lhes a porta, depois de ter gravado na testa de Dante sete letras "P"._
+
+---
+
 A noite já havia cedido terreno para o alvorecer, como se a amante de Titônio, a aurora, surgisse no horizonte, banhada pela luz, lentamente afastando-se dos braços de seu querido. As estrelas, dispostas em forma do escorpião, brilhavam frias, e o céu parecia um vasto campo de joias, enquanto a noite avançava por sua marcha silenciosa. O tempo já havia percorrido metade do caminho quando, finalmente, fui vencido pelo sono e me deitei na grama fresca, junto ao lugar onde antes estávamos todos sentados. 
 
 Era um sono profundo, o tipo de sono que prende a mente entre a carne e o divino, permitindo que as visões invadam com facilidade. Eu estava perdido em um sonho vívido, quando vi uma águia de penas douradas deslizar majestosamente pelo céu, suas asas abertas, prontas para me capturar. Senti-me como Ganimedes, levado ao Olimpo por aquela criatura divina. O pensamento me consumia: "Será que essa ave me levará consigo, ou desprezará meu corpo mortal?" Mas, antes que pudesse ponderar mais, a águia mergulhou com a velocidade de um raio, suas garras me segurando com uma força esmagadora. De repente, eu estava em chamas; o calor me envolvia de tal maneira que minha pele queimava, e acordei com um sobressalto, como se tivesse acabado de escapar de um pesadelo.

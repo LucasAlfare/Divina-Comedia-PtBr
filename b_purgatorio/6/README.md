@@ -1,5 +1,9 @@
 # Purgatório, Canto 6
 
+_Dante promete às almas que a eles se recomendaram que não se esquecerá delas quando voltar ao mundo dos vivos. Os dois poetas encontram o poeta Sordello, que, ao ouvir o nome da sua pátria, Mântua, abraça o mantuano Virgílio. Esse episódio move Dante a uma violenta invectiva contra as divisões e as guerras internas que devastam a Itália._
+
+---
+
 O ar quente e sufocante parecia tornar-se ainda mais denso conforme avançávamos. Cada passo era uma luta, mas eu sentia a urgência me empurrar adiante, como se um peso invisível me conduzisse por aquela multidão de almas sofredoras. Havia algo perturbador no ar — o murmúrio constante de vozes que rogavam por redenção, ecoando como uma súplica contínua, interminável. Elas pediam não por si mesmas, mas por intercessão, esperando que suas preces fossem atendidas por aqueles ainda vivos.
 
 Passei por entre eles, tentando não desviar o olhar de suas feições marcadas pela dor, tentando não me prender em suas histórias, mas era difícil. Cada rosto carregava um fardo, uma tragédia que, mesmo ali, no limiar da redenção, ainda pesava sobre suas almas. A lembrança de Ghin di Tacco, com a selvageria que o definira, pairava no ar, assim como a agonia de quem encontrara a morte no mar, correndo atrás de algo inalcançável. A esperança de Frederico Novello e a bravura de Marzucco me envolviam. Tantas vidas quebradas, tantas histórias interrompidas. O conde Orso, por exemplo, sua alma ainda assombrada pelo ressentimento que o levou à morte, embora ele afirmasse não ter cometido qualquer falha. Era como se suas dores, ainda tão presentes, também fossem minhas.

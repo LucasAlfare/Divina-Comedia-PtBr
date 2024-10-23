@@ -1,5 +1,9 @@
 # Purgatório, canto 20
 
+_Os dois poetas ouvem uma alma recordar exemplos de pobreza honesta e da generosidade benfeitora. É Hugo Capeto, fundador da casa dos reis da França, quem censura asperamente os seus descendentes. Ouve-se, no entanto, tremer o monte e cantar "Gloria in excelsis Deo"._
+
+---
+
 O ar frio da manhã no Purgatório envolvia meu corpo como uma fina névoa, enquanto caminhava ao lado de Virgílio. Cada passo era uma luta entre o meu desejo e as forças que me puxavam em direções contrárias. Ainda assim, eu seguia, decidido, como uma esponja que, mesmo sem se saciar, é retirada da água. O caminho era estreito e sinuoso, e nós nos movíamos lentamente, como se avançássemos ao longo das muralhas de uma fortaleza, com o precipício à nossa esquerda e a rocha sólida à direita. Lá embaixo, as almas, essas sombras lastimosas, choravam silenciosamente, derramando lágrimas como gotas que caíam pesadas, carregadas do peso do mundo e dos seus pecados.
 
 Cada lágrima parecia ter o peso de uma maldição antiga, uma dor que se estendia por gerações. E ali, em meio a todo aquele sofrimento, ouvi uma voz que quebrou o silêncio com uma súplica cheia de emoção: “Doce Maria!”, gritou alguém à nossa frente. A dor em suas palavras era palpável, tão crua e poderosa quanto a de uma mulher em trabalho de parto. E, então, a voz continuou, cheia de ternura e reverência: “Foste pobre, como bem se pode ver pelo lugar onde deste à luz aquele que carregavas.” A menção à pobreza da Virgem ecoou dentro de mim, e logo outras palavras surgiram, louvando um certo Fabrício, alguém que, em tempos antigos, escolhera a virtude sobre a riqueza, preferindo a nobreza da alma ao peso corruptor do ouro.

@@ -1,5 +1,9 @@
 # Purgatório, Canto 3
 
+_Os dois poetas se aprestam a subir o monte. Enquanto procuram o lugar onde a subida seja mais fácil, veem um grupo de almas que lhes vêm ao encontro. Perguntam a elas onde fica a subida. Uma das almas se apresenta a Dante. É Manfredo, rei de Nápoles e da Sicília. Ele narra como morreu, pedindo a Deus na hora extrema. Estão juntas com ele as almas dos que foram inimigos da Santa Igreja._
+
+---
+
 A montanha diante de mim erguia-se como uma muralha intransponível, quase zombando de nossos esforços, enquanto o céu, tingido de um alaranjado crepuscular, começava a desfazer as sombras do passado. Ao meu lado, Virgílio parecia absorto, sua presença sempre sólida, um farol de confiança, apesar das dúvidas que vez ou outra me assaltavam. 
 
 Olhei ao redor. A súbita dispersão das almas ao nosso redor me deixou uma sensação de vazio, como se sua fuga tivesse retirado o peso de suas almas do ar. Seus olhos se voltaram para o alto da montanha, onde a razão os puxava com força invisível. Sentindo o vazio aumentar, instintivamente, me aproximei de Virgílio. Ele era meu guia, minha âncora, e sem ele, como eu poderia continuar a subir aquela montanha?

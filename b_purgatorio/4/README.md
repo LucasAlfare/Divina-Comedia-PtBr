@@ -1,5 +1,9 @@
 # Purgatório, Canto 4
 
+_Seguindo os conselhos recebidos, os poetas, através de um caminho apertado e difícil, sobem ao primeiro salto. Virgílio explica a Dante que, encontrando-se no hemisfério antípoda àquela terra, o Sol gira em direção contrária. Vendo muitas almas recolhidas à sombra de um rochedo e aproximando-se delas, Dante reconhece o seu amigo Belacqua. Ali estão os espíritos preguiçosos daqueles que esperaram para se arrepender até o término da vida._
+
+---
+
 Enquanto subíamos lentamente pela encosta íngreme e rochosa, o cansaço pesava sobre meus ombros como se o próprio monte fosse feito de chumbo. Cada passo parecia uma batalha entre meu corpo exausto e a vontade de seguir em frente, mas a visão de Virgílio à minha frente, determinado e incansável, me impulsionava a continuar. O sol, já alto no céu, marcava cinquenta graus, mas eu sequer havia notado o tempo passar, tão absorto estava nas palavras do espírito que acabara de ouvir. Era como se o próprio conceito de tempo se esvaísse naquele lugar, dissolvido no ar rarefeito das alturas.
 
 Finalmente, chegamos a uma curva na trilha, onde as almas, em uníssono, gritaram: "Aqui é onde está o que procurais". A voz delas soava como um eco distante, mas também inconfundível, como se o próprio destino estivesse nos chamando. A trilha diante de nós era mais estreita e traiçoeira que qualquer caminho que eu já havia percorrido. Lembrei-me das encostas de Sanleo e das colinas que cercavam Noli, mas mesmo essas eram como brincadeiras de criança em comparação à inclinação cruel que agora se erguia diante de mim. A única maneira de seguir adiante parecia ser voar, e mesmo que eu desejasse ter asas, a realidade me ancorava no solo.

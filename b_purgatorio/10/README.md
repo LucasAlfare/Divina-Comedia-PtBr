@@ -1,5 +1,9 @@
 # Purgatório, Canto 10
 
+_Os dois poetas sobem ao primeiro compartimento do Purgatório, cuja escarpa é de mármore, no qual estão esculpidos vários episódios de humildade. Eles os observam e, no entanto, veem em sua direção várias almas curvadas sob o peso de grandes pedras. São as almas dos que, no mundo, foram soberbos._
+
+---
+
 Quando atravessamos o limiar daquela porta solene, senti um frio sutil subir pela espinha, como se o peso invisível de pecados antigos se desprendesse, deixando um rastro de vazio que o eco dos passos parecia preencher. Aquela passagem, outrora desfigurada pelo amor distorcido das almas que se desviavam da virtude, agora se fechava atrás de nós com um som firme e profundo. Não pude deixar de pensar, por um instante, como teria sido se eu tivesse olhado para trás... que desculpa eu teria para o erro, se me deixasse seduzir pelo passado?
 
 Subimos então por uma fenda escarpada na rocha. A cada passo, as pedras pareciam mover-se, ora para um lado, ora para outro, como ondas inquietas que avançam e recuam na maré. A cada movimento, meu corpo era forçado a se ajustar, como se o próprio caminho estivesse testando nossa resistência. Meu guia, sempre atento, virou-se para mim e disse com um leve sorriso: "Aqui, Dante, é necessário um pouco de habilidade. Devemos nos mover com cuidado, alternando de um lado para o outro, seguindo o ritmo da montanha." A cada nova instrução, meus passos tornavam-se mais hesitantes, mais lentos, como se o tempo se arrastasse junto com a própria lua, que já desaparecia no horizonte antes que conseguíssemos escapar daquela passagem apertada.

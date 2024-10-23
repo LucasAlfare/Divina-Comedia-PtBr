@@ -1,5 +1,9 @@
 # Purgatório, canto 18
 
+_Virgílio continua a falar sobre o amor. No entanto, as almas dos preguiçosos vão passando diante dos Poetas, lembrando exemplos da virtude contrária à preguiça e, depois, as punições da preguiça. Uma das almas dá-se a conhecer a Dante. É o abade de São Zeno, em Verona. Dante cai em profundo sono._
+
+---
+
 O silêncio pairava sobre nós como uma névoa densa, quase palpável. As palavras do Mestre ainda ressoavam na minha mente, profundas e enigmáticas, enquanto ele me observava com aqueles olhos penetrantes, tentando discernir se eu havia compreendido tudo o que ele dissera. Mas, mesmo que ele tivesse terminado de falar, algo dentro de mim continuava a arder, como uma sede insaciável por mais conhecimento, por mais respostas. Eu não conseguia me expressar, como se o temor de parecer inconveniente ou de sobrecarregar o Mestre com minhas perguntas me impedisse de abrir a boca. Por dentro, no entanto, minha mente fervilhava com questionamentos: será que eu estava abusando da paciência do meu guia com minhas dúvidas incessantes?
 
 Ele, percebendo minha hesitação e o medo que me consumia, não esperou que eu falasse. Com sua voz serena, me deu a coragem de seguir adiante, oferecendo-me a segurança que apenas um verdadeiro pai espiritual poderia proporcionar.

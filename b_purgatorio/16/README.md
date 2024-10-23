@@ -1,5 +1,9 @@
 # Purgatório, canto 16
 
+_Sempre ao lado de Virgílio, Dante continua a viagem. Denso fumo envolve os iracundos. Entre eles está Marco Lombardo, que lamenta os tempos, que eram bons e agora se tornaram ruins. Dante pergunta de que depende essa mutação, e Marco responde que a corrupção dos tempos novos procede do mau governo do mundo e especialmente da confusão entre o poder espiritual e o poder temporal._
+
+---
+
 A escuridão era densa, como o próprio Inferno. Uma noite sem estrelas ou luz, onde o céu parecia ser engolido por nuvens negras. O ar estava saturado com uma neblina sufocante, mais opaca do que qualquer treva que eu havia conhecido até então. O fumo que nos envolvia era quase tangível, fazendo com que meus olhos lacrimejassem e queimassem, obrigando-me a fechá-los, incapaz de suportar o tormento. 
 
 Meus passos vacilaram, mas logo senti o toque firme de Virgílio, minha guia fiel e sábia, aproximando-se ao meu lado. Ele ofereceu seu ombro para que eu me apoiasse, e sem hesitar, segui como um cego que confia na mão do guia para não se perder ou tropeçar em obstáculos invisíveis. Enquanto caminhávamos naquele ambiente sombrio e imundo, a voz de Virgílio ecoava em meus ouvidos, insistente e protetora: "Não te afastes de mim."

@@ -1,5 +1,9 @@
 # Purgatório, Canto 7
 
+_Sordello, ao saber que aquele que abraçou é Virgílio, faz novas e ainda maiores demonstrações de afeto. O sol está próximo ao ocaso e ao Purgatório não se pode subir à noite. Guiados por Sordello, os dois poetas param em um vale, onde residem os espíritos de personagens que, no mundo, desfrutaram de grande consideração e que somente no fim da vida elevaram seu pensamento a Deus._
+
+---
+
 Enquanto eu seguia meu guia fiel, Sordello nos recebeu com gestos corteses, repetidos três ou quatro vezes, como se quisesse enfatizar a importância de nossa chegada. Em seguida, com uma expressão firme e respeitosa, perguntou quem éramos.
 
 Meu coração já pulsava acelerado, e antes que eu pudesse me dar conta da resposta, Virgílio, com a calma de quem já havia caminhado por tantos reinos, começou a falar. Ele explicou que, antes mesmo que as almas dignas de subir ao Monte chegassem ali, seus ossos já haviam sido enterrados por ordem de Otaviano, o imperador. "Eu sou Virgílio", ele declarou, sua voz reverberando no ar como uma antiga melodia. "E não perdi o Céu por outro motivo além de não ter fé."

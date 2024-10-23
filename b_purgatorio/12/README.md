@@ -1,5 +1,9 @@
 # Purgatório, canto 12
 
+_Os dois poetas continuam a viagem. No pavimento do círculo estão pintados vários exemplos de soberba castigada. Um anjo vem junto dos poetas e os guia até a escada que sobe ao compartimento seguinte. Com a asa, depois, apaga da testa de Dante uma das letras "P"._
+
+---
+
 Enquanto eu caminhava lado a lado com aquela alma oprimida, avançávamos como bois atrelados a um jugo invisível. Seguíamos o ritmo que nosso gentil guia permitia, e por um breve momento, o peso do fardo parecia se dissipar sob sua vigilância. No entanto, a paz foi interrompida quando ele disse, com uma voz firme, que eu devia continuar sozinho dali em diante, como um barco impulsionado pelo próprio remo e vela. Aquela era a oportunidade de cada um de nós, ele alertou, de navegar com suas próprias forças, de conquistar a redenção com seus próprios meios. Assim, mesmo que meus pensamentos ainda pesassem sobre mim, levantei-me, endireitando o corpo, pronto para a nova etapa da jornada.
 
 Conforme eu seguia meu mestre, uma leveza insuspeitada tomou conta de nós. Nossos passos, antes cautelosos e pesados, agora eram ágeis e determinados. O ar ao nosso redor parecia mais leve, e ele, sempre atento, me aconselhou: "Olhe para baixo, Dante, observe o caminho que seus pés trilham, pois isso acalmará seu espírito". Obedeci, e à medida que meus olhos se fixaram no chão, uma visão impressionante tomou forma. As pedras da estrada, como lápides antigas, estavam gravadas com as memórias dos que outrora caminharam com orgulho e arrogância. Era como se as histórias daqueles condenados estivessem sendo esculpidas ali, para que todos que passassem fossem lembrados de suas falhas e quedas. 

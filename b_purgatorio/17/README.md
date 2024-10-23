@@ -1,5 +1,9 @@
 # Purgatório, canto 17
 
+_Saindo do denso fumo, Dante, novamente em êxtase, vê exemplos de ira punida. Tornando-se a si, vê um anjo que está perto da escada do quarto compartimento. Os dois poetas continuam a subir. No entanto, ao cair da noite, param e Virgílio explica ao discípulo que o amor é o princípio de todas as virtudes e de todos os vícios._
+
+---
+
 A neblina espessa me envolvia, ofuscando a visão como uma densa manta de umidade que abraçava a montanha. Cada passo que dava parecia mergulhar-me mais fundo em uma escuridão compacta, onde o mundo ao meu redor desaparecia, tornando-me cego como uma toupeira enterrada sob a terra. O ar estava saturado, quase sólido, e o som dos meus próprios passos era abafado pelo manto de névoa que me rodeava. Eu podia sentir a presença de Virgílio ao meu lado, uma sombra familiar que guiava meus passos incertos, mas mesmo sua figura se tornava indistinta, quase ilusória. Tudo estava imerso naquela névoa, até que, lentamente, a densidade começou a ceder.
 
 Senti, por fim, uma leveza no ar. Os vapores, tão espessos que haviam apagado o mundo, começaram a se dissipar como se um hálito morno os afastasse. O sol, ainda que fraco, penetrou o manto opaco, lançando sobre nós uma luz pálida, quase fantasmal, como a última faísca de um fogo prestes a se extinguir. Era uma luz distante, fraca, mas o suficiente para devolver-nos à visão do horizonte. O disco solar já se inclinava em direção ao poente, suas cores mortas se espalhando pelo céu baixo como um adeus silencioso à terra.

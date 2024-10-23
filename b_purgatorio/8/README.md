@@ -1,5 +1,9 @@
 # Purgatório, Canto 8
 
+_No começo da noite, dois anjos descem do Céu para expulsar a serpente maligna que quer entrar no vale. Entre as sombras que se aproximam dos poetas, Dante reconhece Nino Visconti, de Pisa. Conrado Malaspina pede a Dante notícias de Lunigiana, sua pátria; Dante responde elogiando sua família._
+
+---
+
 Era o fim da tarde, aquela hora mágica em que o desejo se acende no coração dos navegantes, uma saudade melancólica que envolve quem já disse adeus aos seus amigos queridos. Um desejo sutil, quase imperceptível, que pica o coração do viajante solitário, como uma campainha distante que parece lamentar o fim do dia. Eu sentia essa melancolia invadir minha alma, como se cada pulsar do tempo me levasse mais perto de algo inevitável, mas, ao mesmo tempo, distante e etéreo.
 
 Estava ali, tentando silenciar meus pensamentos e perder o sentido da audição, quando meus olhos se fixaram em uma alma que se erguera, pedindo, com um gesto delicado, nossa atenção. Ela levantou as mãos em oração e seus olhos se voltaram ao horizonte, como se pedisse algo que transcendia o que podemos compreender com palavras: uma paz divina. Sua voz, suave e cheia de devoção, começou a entoar o hino “Te lucis ante”. As palavras fluíam dela com uma pureza tal que, por um momento, eu perdi a noção de mim mesmo, imerso na suavidade de sua canção. Logo, outras almas se uniram a ela, acompanhando o hino com o mesmo fervor, os olhos voltados para o céu, como se estivessem em plena comunhão com as esferas celestiais.

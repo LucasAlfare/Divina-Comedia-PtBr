@@ -1,5 +1,9 @@
 # Purgatório, canto 11
 
+_Virgílio pergunta às almas que purgam o pecado da soberba qual é o caminho para subir ao segundo compartimento, e uma delas dá a indicação requerida. Umberto Aldobrandeschi se apresenta e fala com Dante, que, depois, reconhece Oderisi de Gubbio, pintor e gravador. Oderisi dá-lhe notícias de Provenzano Salvani, que está junto a eles._
+
+---
+
 A subida pelo Purgatório parecia eterna. Cada passo ecoava pela estreita cornija de pedra, e o peso da jornada pressionava não apenas meus pés, mas minha alma. O ar ao nosso redor era denso, carregado de uma melancolia antiga, como se o próprio ambiente chorasse as falhas da humanidade. As sombras que nos cercavam, vergadas sob o peso de suas culpas, moviam-se lentamente, cada uma delas uma lembrança dolorosa do orgulho e da arrogância que as havia condenado.
 
 Enquanto avançávamos, uma prece começou a ecoar pelas paredes de pedra, ressoando em uníssono, uma súplica coletiva emoldurada pela humildade que tanto lhes faltara em vida. _"Pai nosso, que estais nos céus, não limitado a um espaço, mas guiado por um amor maior..."_ – a oração fluía entre eles como um rio que, embora calmo na superfície, carregava correntes profundas de arrependimento. Sentia o peso das palavras como se fossem minhas. Sabia que, em algum momento, todos nós precisaríamos recorrer a essa humildade, a essa rendição absoluta. O som era simultaneamente belo e aterrador.

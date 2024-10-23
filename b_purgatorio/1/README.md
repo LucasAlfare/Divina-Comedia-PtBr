@@ -1,5 +1,9 @@
 # Purgatório, Canto 1
 
+_Saindo do Inferno, Dante respira novamente o ar puro e vê fulgentíssimas estrelas. Encontra-se na ilha do Purgatório. O guardião da ilha, Catão Uticense, pergunta aos dois poetas qual é o motivo da sua jornada. Ele os instrui, depois, sobre o que devem fazer antes de iniciar a subida do monte._
+
+---
+
 O céu começava a tingir-se de um azul suave, como um zaffiro oriental, e eu sentia o peso da escuridão se afastando. O ar ao meu redor, antes denso e pesado, agora se tornava mais leve, permitindo que meus pulmões respirassem novamente. Era como se o tormento da jornada pelo Inferno estivesse, finalmente, atrás de nós. O horizonte se abria à minha frente, iluminado pelo planeta Vênus, sua luz suave e reconfortante, anunciando a chegada de um novo dia. À medida que meus olhos se ajustavam à nova paisagem, me voltei para o céu e avistei, pela primeira vez, quatro estrelas brilhantes, tão belas e puras que me perguntei como era possível que, até aquele momento, eu nunca as tivesse visto. Elas reluziam com uma serenidade que parecia carregar consigo promessas de redenção e esperança. "O céu do norte está vazio dessas estrelas", pensei, lamentando os que viviam na escuridão, sem a graça de testemunhar tal espetáculo.
 
 Enquanto eu ainda me deixava envolver por essa visão, uma presença imponente se fez sentir ao meu lado. Virei-me e vi um ancião de semblante austero, de respeito quase divino. Sua barba longa e grisalha e os cabelos brancos caíam sobre seu peito em duas grossas mechas. A luz das quatro estrelas refletia em seu rosto, envolvendo-o em uma aura que parecia divinal. Ele nos encarava com um olhar solene, que exigia uma reverência quase automática. Suas primeiras palavras, carregadas de autoridade e curiosidade, foram dirigidas a nós como se tentassem decifrar nossa presença ali. “Quem sois vós que fugistes da eterna prisão? Quem vos guiou por entre as trevas infernais, desafiando as leis do abismo?”

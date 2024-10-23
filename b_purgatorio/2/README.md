@@ -1,5 +1,9 @@
 # Purgatório, Canto 2
 
+_Estão os poetas ainda na praia, incertos em relação ao caminho, quando chega uma barca, guiada por um anjo, da qual saem almas destinadas ao Purgatório. Uma delas, o músico Casella, amigo de Dante, a convite do poeta, começa a cantar uma de suas canções. Os dois poetas e as almas ficam a ouvir o canto harmonioso. Sobrevém, porém, o severo Catão, que as repreende, e as almas fogem para o monte._
+
+---
+
 O sol estava baixando no horizonte, seu brilho dourado cobria Jerusalém com um manto de luz enquanto o céu parecia ser gradualmente envolvido pelas sombras da noite. Eu podia sentir o ar mudar, uma leve brisa soprando, enquanto a noite surgia no lado oposto do mundo, carregando consigo o equilíbrio perfeito entre luz e escuridão. As primeiras estrelas começaram a brilhar no firmamento, enquanto a bela aurora, que costumava colorir o céu com tons de rosa e vermelho, começava a desbotar, envelhecida pelo avançar da manhã.
 
 Eu e Virgílio ainda caminhávamos ao longo da praia, sentindo a areia fria sob nossos pés. Estávamos como viajantes que, com a mente focada no destino, deixam o corpo seguir lentamente, quase sem perceber. A vastidão do mar parecia refletir nossas inquietações, quando, de repente, algo capturou minha atenção. Como Marte, o planeta vermelho, que às vezes aparece sangrento no céu ao ser coberto pela névoa do amanhecer, assim vi um brilho surgir no horizonte do mar, movendo-se tão rápido que nenhum pássaro poderia igualar sua velocidade.

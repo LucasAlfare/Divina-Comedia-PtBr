@@ -1,5 +1,9 @@
 # Purgatório, Canto 5
 
+_Prosseguindo os dois poetas em sua viagem, encontram uma multidão de almas que se aproximam deles, depois de perceberem que Dante está vivo. São espíritos de pessoas que saíram da vida por morte violenta, mas que, no fim, se arrependeram e perdoaram seus inimigos._
+
+---
+
 Enquanto caminhávamos pela ladeira íngreme, seguindo os passos firmes do meu mestre, o ar ao nosso redor era pesado, carregado com a expectativa de algo iminente. O céu sobre nós era de um cinza contínuo, uma mistura de sombras e luz que oscilava como a própria barreira entre o mundo material e o espiritual. Não havia tempo para descanso, mas o cansaço em meus membros parecia arrastar minha alma junto, criando uma sensação quase sufocante.
 
 De repente, uma voz irrompeu de trás de mim, e o som ecoou como um trovão distante: "Olhem, olhem para ele!" O dedo de um dos espíritos apontava para mim, e suas palavras cortaram o silêncio como uma lâmina afiada. Ele me olhava com uma mistura de fascínio e incredulidade. "Não parece que a luz o atravessa como aos outros... ele anda entre nós como se ainda estivesse vivo." Meus sentidos se aguçaram ao ouvir aquelas palavras, e senti todos os olhos fixos em mim, como se eu fosse uma anomalia nesse reino de sombras.

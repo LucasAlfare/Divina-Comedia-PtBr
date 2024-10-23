@@ -1,5 +1,9 @@
 # Purgatório, canto 13
 
+_Chegam os poetas ao segundo compartimento, no qual estão os pecadores que expiam o pecado da inveja. Os invejosos têm os olhos cosidos com fio de arame. Entre eles está Sápia, senhora de Siena, com quem Dante fala._
+
+---
+
 Enquanto subíamos pela escadaria de pedra, o ar estava denso de expectativa, e senti cada passo como uma batida surda de ansiedade em meu peito. Chegávamos ao topo da segunda cornija do monte, onde a aspereza do caminho parecia esculpir nossa alma com a mesma intensidade com que castigava nossos corpos. À nossa volta, o horizonte de rocha nua estendia-se sem oferecer refúgio ou sombra, apenas o cinza inflexível da montanha, refletindo a aridez das almas ali purgando seus pecados.
 
 "Se estamos esperando encontrar alguém para nos guiar", Virgil murmurou, seus olhos examinando o caminho adiante, "temo que nossa jornada possa ser atrasada além do necessário". A gravidade de suas palavras pesava sobre mim. Eu sabia que o tempo era uma ilusão tênue aqui, mas mesmo assim, sentia a urgência latente em sua voz.

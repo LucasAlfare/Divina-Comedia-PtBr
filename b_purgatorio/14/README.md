@@ -1,5 +1,9 @@
 # Purgatorio, canto 14
 
+_Dante conversa com outras almas de invejosos. Respondendo a uma pergunta de Rinieri de Calboli, intervém Guido del Duca, imprecando contra as cidades da Toscana e lamentando, depois, a degeneração das famílias nobres da Romagna. Os poetas ouvem vozes que lembram episódios nos quais o pecado da inveja foi castigado._
+
+---
+
 Ao ouvir as palavras sussurradas por aquelas almas à direita, senti um arrepio percorrer minha espinha. Estava claro que minha presença aqui, nesse círculo da montanha, era algo incomum, talvez até perturbador para aqueles que já haviam abandonado o corpo mortal e se encontravam presos no limiar entre pecado e redenção. Uma das vozes, ainda baixa, carregava uma mistura de curiosidade e cautela: "Quem é este que caminha ao redor de nossa montanha antes que a morte lhe dê suas asas? E que abre e fecha os olhos à sua vontade, como se ainda estivesse vivo?"
 
 Meu coração pulsava acelerado, mas não deixei que o medo transparecesse. Eles continuavam a conversar entre si, cada palavra tecendo uma rede de especulações. A primeira alma sugeriu que a outra se aproximasse de mim e, com gentileza, me convidasse a falar, talvez na esperança de que eu pudesse esclarecer as dúvidas que agora os consumiam.

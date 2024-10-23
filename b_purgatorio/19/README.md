@@ -1,5 +1,9 @@
 # Purgatório, canto 19
 
+_No sono, Dante tem uma visão misteriosa. Acordando, conta-a a Virgílio, que a explica. Depois, os poetas sobem ao quinto compartimento, no qual se purificam os avarentos, debruçados no chão. Entre eles está o papa Adriano 5º, Ottobuono de Fieschi, que lhe pede que a recomende à sua sobrinha Alagia._
+
+---
+
 Eu caminhava pelas profundezas de minha própria mente, envolvido em pensamentos quando a noite começava a ceder ao alvorecer. Era a hora do dia em que o calor do sol não tinha mais força para aquecer o frio da lua, derrotado pela terra, às vezes até por Saturno. Um momento entre dois mundos, quando os geomantes enxergam seus presságios no céu, surgindo do oriente, como uma pequena luz antes da aurora.
 
 Foi nesse estado liminar que, subitamente, um sonho me tomou. Diante de mim apareceu uma figura grotesca, uma mulher de fala balbuciante. Seus olhos estavam tortos, o corpo retorcido sobre os próprios pés, as mãos deformadas, e seu semblante, pálido e doentio, parecia carente de vida. Ela se movia como uma sombra de si mesma, uma criatura que o tempo esqueceu, mas que ainda insistia em se manifestar diante de mim. Eu a observei, fascinado e repelido ao mesmo tempo. E, enquanto eu olhava, senti algo dentro de mim, uma faísca de calor, como o sol aquecendo os membros frios após uma noite longa e gélida. Meu olhar parecia infundir-lhe vida, endireitando sua postura, liberando sua língua presa, colorindo seu rosto morto com uma luz que lembrava o amor.

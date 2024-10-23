@@ -1,5 +1,9 @@
 # Purgatório, canto 15
 
+_Caindo a noite, os dois poetas chegam ao terceiro compartimento. Aí, Dante, em êxtase, vê exemplos de mansuetude e misericórdia. Voltando a si, encontra-se imerso em um fumo que obscurece o ar e impede a visão._
+
+---
+
 A sensação de caminhar pelos círculos do Purgatório tornava-se mais densa conforme o sol se inclinava em direção ao ocaso, quase como se o tempo estivesse escapando pelas minhas mãos, diluindo-se entre o dia e a noite. O peso da jornada começava a afetar-me, não apenas fisicamente, mas mentalmente. Eu sentia uma estranha pressão em minha testa, como se uma força invisível estivesse sobrecarregando minha mente, enquanto o brilho do sol, que já não estava mais em seu auge, incidia diretamente no meu rosto. Instintivamente, levantei as mãos e protegi meus olhos, tentando bloquear a luz que parecia intensificar-se de forma quase sobrenatural.
 
 Algo brilhou à minha frente, um reflexo que me atingiu como uma seta luminosa, e, por um momento, fiquei atordoado. "O que é isso, meu doce mestre? O que está vindo em nossa direção?" perguntei a Virgílio, sentindo-me impotente contra aquela luz ofuscante. Ele, com sua habitual calma, respondeu: "Não te espantes. É apenas um mensageiro do céu, enviado para nos guiar na subida. Logo teus olhos se acostumarão a esses esplendores, e em breve verás tudo com prazer, como tua própria natureza deseja."
